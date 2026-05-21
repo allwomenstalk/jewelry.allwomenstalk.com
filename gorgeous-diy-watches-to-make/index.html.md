@@ -3,7 +3,7 @@ title: "9 Gorgeous DIY Watches to Make ..."
 description: "Leather; Wrap Vinyl; Fabric Swatch; Scarf; Charmed; More ..."
 url: "https://jewelry.allwomenstalk.com/gorgeous-diy-watches-to-make/"
 category: "jewelry"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 9 Gorgeous DIY Watches to Make ...
@@ -84,15 +84,15 @@ Aren't these **DIY watches** delightful? These are wonderful craft projects for 
 
 ## Related Posts
 
-- [artistic cutlery](https://lifestyle.allwomenstalk.com/creative-cutlery-crafts/)
-- [bicycle diy projects](https://lifestyle.allwomenstalk.com/fun-bicycle-craft-projects/)
 - [home made shelf ideas](https://lifestyle.allwomenstalk.com/simple-but-awesome-diy-shelf-ideas/)
 - [paper doilies diy](https://lifestyle.allwomenstalk.com/fun-paper-doily-diy-projects/)
+- [how to make hats](https://hair.allwomenstalk.com/video-tutorials-on-making-hats/)
 - [diy flowy skirt](https://lifestyle.allwomenstalk.com/sweet-diy-maxi-skirts-to-sew/)
 - [diy tech projects](https://travel.allwomenstalk.com/great-travel-diy-projects/)
+- [artistic cutlery](https://lifestyle.allwomenstalk.com/creative-cutlery-crafts/)
 - [roasting trivet](https://lifestyle.allwomenstalk.com/terrific-diy-trivets-to-make/)
 - [beach kimono pattern](https://lifestyle.allwomenstalk.com/easy-diy-beach-cover-ups-to-make/)
-- [how to make hats](https://hair.allwomenstalk.com/video-tutorials-on-making-hats/)
+- [bicycle diy projects](https://lifestyle.allwomenstalk.com/fun-bicycle-craft-projects/)
 - [suitcase cabinet](https://lifestyle.allwomenstalk.com/brilliant-ways-to-repurpose-a-suitcase/)
 - [10 Creative DIY Jewelry Tutorials to Check out ...](https://jewelry.allwomenstalk.com/creative-diy-jewelry-tutorials-to-check-out/)
 - [10 Beautiful Boho Accessories to Make ...](https://fashion.allwomenstalk.com/beautiful-boho-accessories-to-make/)

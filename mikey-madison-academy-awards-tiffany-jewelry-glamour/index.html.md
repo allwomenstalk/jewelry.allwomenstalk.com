@@ -3,7 +3,7 @@ title: "Glamour in the Spotlight: Mikey Madisons Academy Awards Preparation"
 description: "The Perfect Jewelry Selection; Attending in Style; More ..."
 url: "https://jewelry.allwomenstalk.com/mikey-madison-academy-awards-tiffany-jewelry-glamour/"
 category: "jewelry"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Glamour in the Spotlight: Mikey Madisons Academy Awards Preparation

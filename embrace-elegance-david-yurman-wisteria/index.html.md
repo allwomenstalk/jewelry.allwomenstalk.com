@@ -3,7 +3,7 @@ title: "Embrace Elegance with David Yurmans Wisteria Collection"
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://jewelry.allwomenstalk.com/embrace-elegance-david-yurman-wisteria/"
 category: "jewelry"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Embrace Elegance with David Yurmans Wisteria Collection
