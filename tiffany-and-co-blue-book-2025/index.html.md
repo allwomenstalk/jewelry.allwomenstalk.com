@@ -3,7 +3,7 @@ title: "Discover the magic of Tiffany & Co.s Sea of Wonder Collection and..."
 description: "The Legacy of Tiffany & Co.; Crafting the Sea Turtle Pendant; The Sea of Wonder Collection; A Testament to Sustainability; What’s Next for Tiffany & Co.?; More ..."
 url: "https://jewelry.allwomenstalk.com/tiffany-and-co-blue-book-2025/"
 category: "jewelry"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Discover the magic of Tiffany & Co.s Sea of Wonder Collection and...

@@ -3,7 +3,7 @@ title: "What Makes the Cur Entrelac a Must-See This Season"
 description: "The Timeless Elegance of the Cœur Entrelacé; The Vibrancy of the Tresse Bracelet; More ..."
 url: "https://jewelry.allwomenstalk.com/poiray-spring-jewelry-collection/"
 category: "jewelry"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # What Makes the Cur Entrelac a Must\-See This Season

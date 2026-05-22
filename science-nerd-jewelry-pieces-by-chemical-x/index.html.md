@@ -3,7 +3,7 @@ title: "7 Science-Nerd Jewelry Pieces by Chemical X ..."
 description: "Dinosaur Earring Set; Capacitor Bracelet - Black; Dinosaur Bracelet; 'the Original Vegetarian' Dinosaur Necklace; Hardware Earrings; More ..."
 url: "https://jewelry.allwomenstalk.com/science-nerd-jewelry-pieces-by-chemical-x/"
 category: "jewelry"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Science\-Nerd Jewelry Pieces by Chemical X ...
@@ -51,16 +51,16 @@ Top Photo Credit: [additionsstyle](https://web.archive.org/web/https://www.flick
 
 ## Related Posts
 
-- [tiffany bangle design](https://jewelry.allwomenstalk.com/gorgeous-tiffany-bangles/)
+- [7 Tips for Choosing an Engagement Ring ...](https://jewelry.allwomenstalk.com/tips-for-choosing-an-engagement-ring/)
+- [artificial stone accessory](https://jewelry.allwomenstalk.com/natural-stone-accessories/)
+- [7 Pairs of Colored Earrings ...](https://jewelry.allwomenstalk.com/pairs-of-colored-earrings/)
 - [7 Beautiful Floral Jewelry ...](https://jewelry.allwomenstalk.com/beautiful-floral-jewelry/)
 - [7 bracelet set](https://jewelry.allwomenstalk.com/bracelet-sets/)
 - [betsey johnson skull jewelry](https://jewelry.allwomenstalk.com/fun-betsey-johnson-necklaces/)
-- [7 Cute Jewelry Pieces by Metal Smitten ...](https://jewelry.allwomenstalk.com/cute-jewelry-pieces-by-metal-smitten/)
-- [artificial stone accessory](https://jewelry.allwomenstalk.com/natural-stone-accessories/)
-- [7 Pairs of Colored Earrings ...](https://jewelry.allwomenstalk.com/pairs-of-colored-earrings/)
-- [tennis bracelet womens tiffany](https://jewelry.allwomenstalk.com/tiffany-bracelets-i-covet/)
 - [paris stylo hollywood icon](https://jewelry.allwomenstalk.com/pieces-of-jewelry-you-can-make-on-your-own/)
-- [7 Tips for Choosing an Engagement Ring ...](https://jewelry.allwomenstalk.com/tips-for-choosing-an-engagement-ring/)
+- [tennis bracelet womens tiffany](https://jewelry.allwomenstalk.com/tiffany-bracelets-i-covet/)
+- [tiffany bangle design](https://jewelry.allwomenstalk.com/gorgeous-tiffany-bangles/)
+- [7 Cute Jewelry Pieces by Metal Smitten ...](https://jewelry.allwomenstalk.com/cute-jewelry-pieces-by-metal-smitten/)
 - [7 Great Necklaces by Monserat De Lucca ...](https://jewelry.allwomenstalk.com/7-great-necklaces-by-monserat-de-lucca/)
 - [7 Sweet Jewelry Pieces by Chocolate  Steel ...](https://jewelry.allwomenstalk.com/7-sweet-jewelry-pieces-by-chocolate-steel/)
 

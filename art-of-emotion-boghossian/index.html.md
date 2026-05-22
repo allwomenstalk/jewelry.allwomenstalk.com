@@ -3,7 +3,7 @@ title: "The Magic of Inlay: Why Boghossians Creations Captivate..."
 description: "The Elegance of Baguette Diamonds; A Symphony of Colors: Yellow Beryl and Pink Tourmaline; Emotion in Every Shade; A Legacy of Precision: The Art of Inlay; Boghossian: Crafting Legacies with Every Piece; More ..."
 url: "https://jewelry.allwomenstalk.com/art-of-emotion-boghossian/"
 category: "jewelry"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # The Magic of Inlay: Why Boghossians Creations Captivate...
