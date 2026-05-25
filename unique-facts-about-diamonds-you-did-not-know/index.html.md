@@ -56,16 +56,16 @@ But they don’t have to be rare or the ultimate symbol of romance, sparkle is j
 
 ## Related Posts
 
-- [harry potter book facts you didnt know](https://lifestyle.allwomenstalk.com/fun-harry-potter-facts-you-didnt-know/)
-- [facts about myth](https://lifestyle.allwomenstalk.com/interesting-facts-about-mythology/)
 - [pawn shop 9 mile](https://lifestyle.allwomenstalk.com/9-things-you-might-not-know-about-pawn-shops/)
-- [facts about 911 you didnt know](https://lifestyle.allwomenstalk.com/interesting-facts-about-911/)
 - [brad pitt fun facts](https://allwomenstalk.com/10-things-you-didnt-know-about-brad-pitt/)
 - [winter solstice fun facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-the-yule-holiday/)
-- [gisele bundchen sisters](https://allwomenstalk.com/10-things-about-gisele-bundchen-you-did-not-know/)
-- [physical geography facts](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
 - [Five Things You Didnt Know about Us](https://allwomenstalk.com/five-things-you-didnt-know-about-us/)
 - [angelina jolie rehab](https://allwomenstalk.com/ten-things-about-angelina-jolie-you-did-not-know/)
+- [facts about 911 you didnt know](https://lifestyle.allwomenstalk.com/interesting-facts-about-911/)
+- [physical geography facts](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
+- [facts about myth](https://lifestyle.allwomenstalk.com/interesting-facts-about-mythology/)
+- [harry potter book facts you didnt know](https://lifestyle.allwomenstalk.com/fun-harry-potter-facts-you-didnt-know/)
+- [gisele bundchen sisters](https://allwomenstalk.com/10-things-about-gisele-bundchen-you-did-not-know/)
 - [7 Awesome Facts ...](https://allwomenstalk.com/7-awesome-facts/)
 - [7 Must-Know Facts ...](https://allwomenstalk.com/7-must-have-facts/)
 

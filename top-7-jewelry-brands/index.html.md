@@ -44,16 +44,16 @@ Top image source: [inhabitat.com](https://www.inhabitat.com/wp-content/uploads/k
 
 ## Related Posts
 
-- [tiffany nurse necklace](https://jewelry.allwomenstalk.com/gifts-for-grads-from-tiffany/)
-- [7 Stunning Chandelier Earrings ...](https://jewelry.allwomenstalk.com/stunning-chandelier-earrings/)
-- [gorgeous chandelier](https://jewelry.allwomenstalk.com/7-gorgeous-chandelier-earrings/)
 - [8 Hot Hoop Earrings ...](https://jewelry.allwomenstalk.com/8-hot-hoop-earrings/)
-- [rings with crystals](https://jewelry.allwomenstalk.com/raw-crystal-rings/)
-- [stylised skull](https://jewelry.allwomenstalk.com/skull-detailed-jewellery/)
-- [david yurman moon necklace](https://jewelry.allwomenstalk.com/6-pieces-from-the-david-yurman-chiclet-collection/)
-- [7 Must-Have Leather Jewelry ...](https://jewelry.allwomenstalk.com/must-have-leather-jewelry/)
-- [clip fastening earrings](https://jewelry.allwomenstalk.com/striking-clip-on-earrings/)
+- [gorgeous chandelier](https://jewelry.allwomenstalk.com/7-gorgeous-chandelier-earrings/)
+- [7 Stunning Chandelier Earrings ...](https://jewelry.allwomenstalk.com/stunning-chandelier-earrings/)
 - [juicy rings](https://jewelry.allwomenstalk.com/cute-juicy-couture-blings/)
+- [clip fastening earrings](https://jewelry.allwomenstalk.com/striking-clip-on-earrings/)
+- [stylised skull](https://jewelry.allwomenstalk.com/skull-detailed-jewellery/)
+- [7 Must-Have Leather Jewelry ...](https://jewelry.allwomenstalk.com/must-have-leather-jewelry/)
+- [tiffany nurse necklace](https://jewelry.allwomenstalk.com/gifts-for-grads-from-tiffany/)
+- [david yurman moon necklace](https://jewelry.allwomenstalk.com/6-pieces-from-the-david-yurman-chiclet-collection/)
+- [rings with crystals](https://jewelry.allwomenstalk.com/raw-crystal-rings/)
 - [7 Pieces of Jewelry You Can Make on Your Own ...](https://jewelry.allwomenstalk.com/pieces-of-jewelry-you-can-make-on-your-own/)
 - [7 Posh Vintage Designer Jewels ...](https://jewelry.allwomenstalk.com/posh-vintage-designer-jewels/)
 

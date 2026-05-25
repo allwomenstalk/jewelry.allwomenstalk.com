@@ -147,16 +147,16 @@ Let President Snow know whose side you're on.
 
 ## Related Posts
 
-- [statement necklace meaning](https://jewelry.allwomenstalk.com/statement-necklaces-to-add-umph-to-any-outfit/)
-- [paris riche stylo blinged and](https://jewelry.allwomenstalk.com/fab-bling-inspired-by-the-star-wars-franchise/)
-- [irish memorial tattoos](https://beauty.allwomenstalk.com/memorial-tattoos-for-anyone-youve-loved-and-lost/)
+- [statement necklaces for black dress](https://jewelry.allwomenstalk.com/statement-necklaces-thatll-add-sparkle-to-your-wardrobe/)
 - [ear cuffs meaning](https://jewelry.allwomenstalk.com/sexy-ear-cuffs-for-women-without-any-piercings/)
 - [pirate tattoos](https://beauty.allwomenstalk.com/majestic-mermaid-tattoos-meant-to-make-you-smile/)
-- [bed bath and beyond jewelry organizer](https://jewelry.allwomenstalk.com/unique-jewelry-stands-to-keep-your-accessories-organized/)
-- [conch piercing starter jewelry](https://jewelry.allwomenstalk.com/unique-multiple-piercing-looks-youll-love/)
-- [unique mother daughter tattoos](https://beauty.allwomenstalk.com/mother-daughter-tattoos-thatll-create-a-lifelong-bond/)
-- [statement necklaces for black dress](https://jewelry.allwomenstalk.com/statement-necklaces-thatll-add-sparkle-to-your-wardrobe/)
+- [irish memorial tattoos](https://beauty.allwomenstalk.com/memorial-tattoos-for-anyone-youve-loved-and-lost/)
+- [statement necklace meaning](https://jewelry.allwomenstalk.com/statement-necklaces-to-add-umph-to-any-outfit/)
 - [cutest tree](https://jewelry.allwomenstalk.com/heres-the-cutest-holiday-tree-themed-jewelry-out-there/)
+- [conch piercing starter jewelry](https://jewelry.allwomenstalk.com/unique-multiple-piercing-looks-youll-love/)
+- [paris riche stylo blinged and](https://jewelry.allwomenstalk.com/fab-bling-inspired-by-the-star-wars-franchise/)
+- [unique mother daughter tattoos](https://beauty.allwomenstalk.com/mother-daughter-tattoos-thatll-create-a-lifelong-bond/)
+- [bed bath and beyond jewelry organizer](https://jewelry.allwomenstalk.com/unique-jewelry-stands-to-keep-your-accessories-organized/)
 - [7 Beautiful Pieces of Jewelry by Wendy Mink ...](https://jewelry.allwomenstalk.com/7-beautiful-pieces-of-jewelry-by-wendy-mink/)
 - [8 Animal Inspired Pieces of Jewelry ...](https://jewelry.allwomenstalk.com/8-animal-inspired-pieces-of-jewelry/)
 

@@ -82,16 +82,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/11807910)
 
 ## Related Posts
 
-- [significant piece of jewelry](https://jewelry.allwomenstalk.com/classic-jewelry-pieces-to-invest-in/)
-- [collard shirt accessory](https://jewelry.allwomenstalk.com/cool-collar-tip-accessories/)
 - [dimand earrings](https://jewelry.allwomenstalk.com/styles-of-cute-christmas-jewelry-wardrobe/)
+- [collard shirt accessory](https://jewelry.allwomenstalk.com/cool-collar-tip-accessories/)
+- [stylish ear cuffs](https://jewelry.allwomenstalk.com/on-trend-ear-cuffs/)
 - [dress to impress gothic romance](https://fashion.allwomenstalk.com/gothic-romance-fall-pieces/)
-- [500 carat diamond](https://wedding.allwomenstalk.com/most-stunning-celebrity-engagement-rings/)
-- [cameo jewelry box](https://jewelry.allwomenstalk.com/chic-cameo-jewelry-pieces-to-die-for-2/)
-- [upcoming jewelry trends](https://jewelry.allwomenstalk.com/jewelry-trends-to-take-note-of/)
 - [statement collar](https://fashion.allwomenstalk.com/stylish-statement-collars/)
 - [peacock outfits](https://fashion.allwomenstalk.com/must-have-peacock-design-items/)
-- [stylish ear cuffs](https://jewelry.allwomenstalk.com/on-trend-ear-cuffs/)
+- [upcoming jewelry trends](https://jewelry.allwomenstalk.com/jewelry-trends-to-take-note-of/)
+- [significant piece of jewelry](https://jewelry.allwomenstalk.com/classic-jewelry-pieces-to-invest-in/)
+- [cameo jewelry box](https://jewelry.allwomenstalk.com/chic-cameo-jewelry-pieces-to-die-for-2/)
+- [500 carat diamond](https://wedding.allwomenstalk.com/most-stunning-celebrity-engagement-rings/)
 - [7 Gorgeous Bridal Accessories ...](https://wedding.allwomenstalk.com/7-gorgeous-bridal-accessories/)
 - [9 Wedding Hairdos That Look Spectacular ...](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
 

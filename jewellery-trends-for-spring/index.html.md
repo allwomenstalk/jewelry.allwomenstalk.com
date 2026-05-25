@@ -56,13 +56,13 @@ You can easily stay on top of the latest spring trends by updating your look wit
 
 ## Related Posts
 
-- [latest fashion blogs](https://fashion.allwomenstalk.com/trends-that-fashion-bloggers-love/)
 - [beauty trends that guys love](https://fashion.allwomenstalk.com/beauty-and-style-trends-that-guys-hate/)
 - [paris riche stylo smoky endless](https://makeup.allwomenstalk.com/spring-makeup-trends/)
+- [latest fashion blogs](https://fashion.allwomenstalk.com/trends-that-fashion-bloggers-love/)
+- [spring 2013 fashion trends](https://shoes.allwomenstalk.com/shoe-trends-for-spring/)
+- [emitaz height](https://streetstyle.allwomenstalk.com/inspirational-street-style-ideas-for-spring/)
 - [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/eyeglass-trends-for/)
 - [trends from the 50s](https://fashion.allwomenstalk.com/gorgeous-trends-from-the-50s-we-should-revisit/)
-- [emitaz height](https://streetstyle.allwomenstalk.com/inspirational-street-style-ideas-for-spring/)
-- [spring 2013 fashion trends](https://shoes.allwomenstalk.com/shoe-trends-for-spring/)
 - [eyeglass styles 2013](https://fashion.allwomenstalk.com/trends-in-eyewear-for-spring/)
 - [fall 2013 trends](https://beauty.allwomenstalk.com/fierce-fall-beauty-trends/)
 - [2013 trends fashion](https://fashion.allwomenstalk.com/street-style-trends-for-spring/)

@@ -42,16 +42,16 @@ I am pleased that jewelry went through so many changes during the 20th century. 
 
 ## Related Posts
 
-- [stones for health and wealth](https://health.allwomenstalk.com/crystal-gems-and-minerals-for-health-and-wealth/)
-- [most unique jewelry](https://jewelry.allwomenstalk.com/unique-jewelry-pieces-to-make-you-stand-out/)
-- [brightening watches](https://fashion.allwomenstalk.com/fresh-and-funky-watches-that-will-brighten-up-your-outfits/)
 - [paris riche stylo emerald](https://jewelry.allwomenstalk.com/breathtaking-and-affordable-emerald-jewelry/)
-- [wedding guest jewelry](https://wedding.allwomenstalk.com/must-have-jewelry-and-accessories-for-an-indian-wedding/)
-- [best frames for oval face](https://fashion.allwomenstalk.com/eyeglasses-frames-for-different-face-shapes/)
-- [alyssa milano glasses](https://fashion.allwomenstalk.com/funky-glasses-frames-we-cant-wait-to-own/)
-- [beach jewelry accessories](https://jewelry.allwomenstalk.com/pieces-of-jewelry-with-a-beach-theme/)
-- [neon jewelry](https://jewelry.allwomenstalk.com/neon-jewelry-pieces-to-brighten-every-day/)
+- [stones for health and wealth](https://health.allwomenstalk.com/crystal-gems-and-minerals-for-health-and-wealth/)
+- [brightening watches](https://fashion.allwomenstalk.com/fresh-and-funky-watches-that-will-brighten-up-your-outfits/)
 - [nike just did it graduation cap](https://teen.allwomenstalk.com/epic-designs-for-graduation-caps/)
+- [neon jewelry](https://jewelry.allwomenstalk.com/neon-jewelry-pieces-to-brighten-every-day/)
+- [most unique jewelry](https://jewelry.allwomenstalk.com/unique-jewelry-pieces-to-make-you-stand-out/)
+- [best frames for oval face](https://fashion.allwomenstalk.com/eyeglasses-frames-for-different-face-shapes/)
+- [beach jewelry accessories](https://jewelry.allwomenstalk.com/pieces-of-jewelry-with-a-beach-theme/)
+- [wedding guest jewelry](https://wedding.allwomenstalk.com/must-have-jewelry-and-accessories-for-an-indian-wedding/)
+- [alyssa milano glasses](https://fashion.allwomenstalk.com/funky-glasses-frames-we-cant-wait-to-own/)
 - [7 Sweet Jewelry Pieces by Chocolate  Steel ...](https://jewelry.allwomenstalk.com/7-sweet-jewelry-pieces-by-chocolate-steel/)
 - [Top 7 Jewelry Brands ...](https://jewelry.allwomenstalk.com/top-7-jewelry-brands/)
 

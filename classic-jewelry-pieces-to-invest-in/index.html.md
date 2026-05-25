@@ -44,16 +44,16 @@ Top Image Source: [bubblycaviar.com](https://goo.gl/m90Iqx)
 
 ## Related Posts
 
-- [collard shirt accessory](https://jewelry.allwomenstalk.com/cool-collar-tip-accessories/)
+- [upcoming jewelry trends](https://jewelry.allwomenstalk.com/jewelry-trends-to-take-note-of/)
+- [dimand earrings](https://jewelry.allwomenstalk.com/styles-of-cute-christmas-jewelry-wardrobe/)
 - [peacock outfits](https://fashion.allwomenstalk.com/must-have-peacock-design-items/)
+- [collard shirt accessory](https://jewelry.allwomenstalk.com/cool-collar-tip-accessories/)
 - [stylish ear cuffs](https://jewelry.allwomenstalk.com/on-trend-ear-cuffs/)
-- [engagement ring box decoration](https://wedding.allwomenstalk.com/unique-engagement-ring-boxes-for-a-romantic-proposal/)
 - [dress to impress gothic romance](https://fashion.allwomenstalk.com/gothic-romance-fall-pieces/)
 - [cameo jewelry box](https://jewelry.allwomenstalk.com/chic-cameo-jewelry-pieces-to-die-for-2/)
-- [dimand earrings](https://jewelry.allwomenstalk.com/styles-of-cute-christmas-jewelry-wardrobe/)
-- [statement collar](https://fashion.allwomenstalk.com/stylish-statement-collars/)
 - [little engagement rings](https://wedding.allwomenstalk.com/stunning-rose-gold-engagement-rings/)
-- [upcoming jewelry trends](https://jewelry.allwomenstalk.com/jewelry-trends-to-take-note-of/)
+- [statement collar](https://fashion.allwomenstalk.com/stylish-statement-collars/)
+- [engagement ring box decoration](https://wedding.allwomenstalk.com/unique-engagement-ring-boxes-for-a-romantic-proposal/)
 - [7 Classic Designer Shoes to Invest into ...](https://shoes.allwomenstalk.com/classic-designer-shoes-to-invest-into/)
 - [7 Vintage Must-Haves ...](https://fashion.allwomenstalk.com/vintage-must-haves/)
 

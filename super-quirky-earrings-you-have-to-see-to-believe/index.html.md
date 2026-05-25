@@ -56,16 +56,16 @@ With the right personality, I think you can pretty much wear any type of jewelry
 
 ## Related Posts
 
-- [complement your style](https://fashion.allwomenstalk.com/spectacular-polka-dot-pieces-that-will-compliment-your-style/)
-- [barbed wire tattoo](https://lifestyle.allwomenstalk.com/very-feminine-spots-for-a-tattoo/)
-- [best music accessories](https://music.allwomenstalk.com/adorable-accessories-for-music-lovers/)
-- [small disney wrist tattoos](https://lifestyle.allwomenstalk.com/tempting-tattoo-ideas-for-disney-lovers/)
-- [watch arm candy](https://jewelry.allwomenstalk.com/funky-watches-for-some-serious-arm-candy/)
-- [beautiful boys kissing](https://jewelry.allwomenstalk.com/cute-piercings-to-think-about-getting/)
 - [greatergoodnetwork](https://jewelry.allwomenstalk.com/of-our-favorite-accessories-that-benefit-causes-we-love/)
 - [love hp name tattoo](https://lifestyle.allwomenstalk.com/awesome-harry-potter-tattoos-for-any-potterhead/)
-- [watch the fashionistas](https://jewelry.allwomenstalk.com/wonderful-watches-for-fashionistas-on-a-budget/)
+- [barbed wire tattoo](https://lifestyle.allwomenstalk.com/very-feminine-spots-for-a-tattoo/)
+- [small disney wrist tattoos](https://lifestyle.allwomenstalk.com/tempting-tattoo-ideas-for-disney-lovers/)
+- [complement your style](https://fashion.allwomenstalk.com/spectacular-polka-dot-pieces-that-will-compliment-your-style/)
+- [watch arm candy](https://jewelry.allwomenstalk.com/funky-watches-for-some-serious-arm-candy/)
 - [worthy watch](https://jewelry.allwomenstalk.com/splurge-worthy-beautiful-watches-to-flaunt-this-season/)
+- [best music accessories](https://music.allwomenstalk.com/adorable-accessories-for-music-lovers/)
+- [watch the fashionistas](https://jewelry.allwomenstalk.com/wonderful-watches-for-fashionistas-on-a-budget/)
+- [beautiful boys kissing](https://jewelry.allwomenstalk.com/cute-piercings-to-think-about-getting/)
 - [7 Fabulously Stunning and Unique Engagement Rings ...](https://wedding.allwomenstalk.com/fabulously-stunning-and-unique-engagement-rings/)
 - [7 Unusual Rings from Anthropologie ...](https://jewelry.allwomenstalk.com/7-unusual-rings-from-anthropologie/)
 

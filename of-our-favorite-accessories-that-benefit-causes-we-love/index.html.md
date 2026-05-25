@@ -60,16 +60,16 @@ These are just a few of the many fabulous accessories that benefit good causes. 
 
 ## Related Posts
 
-- [barbed wire tattoo](https://lifestyle.allwomenstalk.com/very-feminine-spots-for-a-tattoo/)
-- [small disney wrist tattoos](https://lifestyle.allwomenstalk.com/tempting-tattoo-ideas-for-disney-lovers/)
-- [watch the fashionistas](https://jewelry.allwomenstalk.com/wonderful-watches-for-fashionistas-on-a-budget/)
-- [watch arm candy](https://jewelry.allwomenstalk.com/funky-watches-for-some-serious-arm-candy/)
-- [free people all too well cuff](https://jewelry.allwomenstalk.com/best-cuff-bracelets/)
-- [loren hope bracelet](https://jewelry.allwomenstalk.com/the-best-statement-cuffs/)
-- [best small earrings](https://jewelry.allwomenstalk.com/the-best-stud-earrings/)
-- [beautiful boys kissing](https://jewelry.allwomenstalk.com/cute-piercings-to-think-about-getting/)
 - [complement your style](https://fashion.allwomenstalk.com/spectacular-polka-dot-pieces-that-will-compliment-your-style/)
+- [free people all too well cuff](https://jewelry.allwomenstalk.com/best-cuff-bracelets/)
+- [watch arm candy](https://jewelry.allwomenstalk.com/funky-watches-for-some-serious-arm-candy/)
 - [love hp name tattoo](https://lifestyle.allwomenstalk.com/awesome-harry-potter-tattoos-for-any-potterhead/)
+- [watch the fashionistas](https://jewelry.allwomenstalk.com/wonderful-watches-for-fashionistas-on-a-budget/)
+- [best small earrings](https://jewelry.allwomenstalk.com/the-best-stud-earrings/)
+- [barbed wire tattoo](https://lifestyle.allwomenstalk.com/very-feminine-spots-for-a-tattoo/)
+- [beautiful boys kissing](https://jewelry.allwomenstalk.com/cute-piercings-to-think-about-getting/)
+- [small disney wrist tattoos](https://lifestyle.allwomenstalk.com/tempting-tattoo-ideas-for-disney-lovers/)
+- [loren hope bracelet](https://jewelry.allwomenstalk.com/the-best-statement-cuffs/)
 - [7 Must Have Shoe Accessories ...](https://shoes.allwomenstalk.com/7-must-have-shoe-accessories/)
 - [7 Vintage Must-Haves ...](https://fashion.allwomenstalk.com/vintage-must-haves/)
 

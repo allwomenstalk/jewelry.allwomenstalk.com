@@ -58,16 +58,16 @@ Sources: [dailydot.com](https://goo.gl/xnqTDe)
 
 ## Related Posts
 
-- [small tattoo moon](https://beauty.allwomenstalk.com/the-daintiest-spots-for-a-small-tattoo/)
-- [simple dandelion tattoo](https://beauty.allwomenstalk.com/make-a-wish-with-these-gorgeous-dandelion-tattoos/)
-- [2x neck tattoo](https://beauty.allwomenstalk.com/these-nautical-tattoos-will-make-you-want-to-sail-the-seven-seas/)
 - [tattoo ideas in memory of dad](https://beauty.allwomenstalk.com/tattoo-ideas-to-honor-the-deceased/)
-- [wedding ring tattoo designs for couples](https://beauty.allwomenstalk.com/tiny-finger-tattoos-that-its-impossible-not-to-love/)
+- [simple dandelion tattoo](https://beauty.allwomenstalk.com/make-a-wish-with-these-gorgeous-dandelion-tattoos/)
 - [cute color tattoos](https://beauty.allwomenstalk.com/gorgeous-rainbow-tattoos-youll-want-to-get-inked-today/)
-- [fergie engagement ring](https://jewelry.allwomenstalk.com/unique-celeb-engagement-rings-you-should-be-jealous-of/)
-- [roman latin tattoo](https://beauty.allwomenstalk.com/latin-tattoos-you-are-not-going-to-resist-getting/)
-- [roman numerals shoulder tattoo](https://beauty.allwomenstalk.com/inks-going-classic-with-these-roman-numeral-tattoos/)
+- [2x neck tattoo](https://beauty.allwomenstalk.com/these-nautical-tattoos-will-make-you-want-to-sail-the-seven-seas/)
+- [small tattoo moon](https://beauty.allwomenstalk.com/the-daintiest-spots-for-a-small-tattoo/)
 - [temporary body modification](https://beauty.allwomenstalk.com/temporary-body-modifications-for-tattoo-and-piercing-lovers/)
+- [roman latin tattoo](https://beauty.allwomenstalk.com/latin-tattoos-you-are-not-going-to-resist-getting/)
+- [fergie engagement ring](https://jewelry.allwomenstalk.com/unique-celeb-engagement-rings-you-should-be-jealous-of/)
+- [wedding ring tattoo designs for couples](https://beauty.allwomenstalk.com/tiny-finger-tattoos-that-its-impossible-not-to-love/)
+- [roman numerals shoulder tattoo](https://beauty.allwomenstalk.com/inks-going-classic-with-these-roman-numeral-tattoos/)
 - [Haute Holiday Gift Guide: Gadget Gifts for the Gla...](https://allwomenstalk.com/haute-holiday-gift-guide-gadget-gifts-for-the-glamour-girl/)
 - [Fashion Designer Must-Haves ...](https://allwomenstalk.com/fashion-designer-must-haves/)
 

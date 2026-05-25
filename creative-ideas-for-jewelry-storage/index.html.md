@@ -56,16 +56,16 @@ These are some beautiful ways that you can store jewelry. What are some creative
 
 ## Related Posts
 
-- [stretched medusa piercing](https://jewelry.allwomenstalk.com/edgy-examples-of-facial-piercings/)
-- [types of art glass](https://lifestyle.allwomenstalk.com/gorgeous-pieces-of-art-glass-to-lust-after/)
 - [jewelry for book lovers](https://books.allwomenstalk.com/book-themed-accessories/)
-- [masks with long noses](https://fashion.allwomenstalk.com/different-types-of-venetian-masks-that-are-fabulous-and-impressive/)
-- [louis vuitton einstein watch](https://jewelry.allwomenstalk.com/beautiful-womens-watches-to-adorn-your-wrist/)
-- [cute tattoo](https://inspiration.allwomenstalk.com/you-your-bff-super-cute-tattoo-ideas/)
 - [how many pairs of earrings should you have](https://jewelry.allwomenstalk.com/pairs-of-silver-earrings-you-can-wear-with-anything/)
-- [golden hair band](https://hair.allwomenstalk.com/dazzling-pieces-of-hair-jewelry-to-jazz-up-your-do/)
+- [louis vuitton einstein watch](https://jewelry.allwomenstalk.com/beautiful-womens-watches-to-adorn-your-wrist/)
+- [stretched medusa piercing](https://jewelry.allwomenstalk.com/edgy-examples-of-facial-piercings/)
 - [animal inspired jewellery](https://jewelry.allwomenstalk.com/cute-animal-inspired-pieces-of-jewellery-you-need/)
 - [pawn stars](https://jewelry.allwomenstalk.com/stunningly-beautiful-imperial-faberge-eggs/)
+- [cute tattoo](https://inspiration.allwomenstalk.com/you-your-bff-super-cute-tattoo-ideas/)
+- [masks with long noses](https://fashion.allwomenstalk.com/different-types-of-venetian-masks-that-are-fabulous-and-impressive/)
+- [types of art glass](https://lifestyle.allwomenstalk.com/gorgeous-pieces-of-art-glass-to-lust-after/)
+- [golden hair band](https://hair.allwomenstalk.com/dazzling-pieces-of-hair-jewelry-to-jazz-up-your-do/)
 - [7 Pieces of Jewelry You Can Make on Your Own ...](https://jewelry.allwomenstalk.com/pieces-of-jewelry-you-can-make-on-your-own/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
 

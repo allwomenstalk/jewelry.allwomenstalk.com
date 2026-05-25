@@ -70,16 +70,16 @@ What are your thoughts on the animal jewelry trend? Have you fallen for any of t
 
 ## Related Posts
 
-- [cute love necklaces](https://jewelry.allwomenstalk.com/8-cute-necklaces-by-mark-poulin/)
-- [7 Sweet Little Rings ...](https://jewelry.allwomenstalk.com/7-sweet-little-rings/)
-- [is marc jacobs jewelry real](https://jewelry.allwomenstalk.com/7-hot-marc-jacobs-necklaces/)
-- [8 Eye-Catching Big Rings ...](https://jewelry.allwomenstalk.com/8-eye-catching-big-rings/)
-- [designer hair accessories](https://hair.allwomenstalk.com/lovely-designer-hair-accessories/)
 - [7 Chic Cuffs ...](https://jewelry.allwomenstalk.com/7-chic-cuffs/)
-- [7 Gorgeous Necklaces by Violet Bella ...](https://jewelry.allwomenstalk.com/7-gorgeous-necklaces-by-violet-bella/)
-- [10 Fab-Looking Bangles ...](https://jewelry.allwomenstalk.com/10-fab-looking-bangles/)
-- [peggy skemp](https://jewelry.allwomenstalk.com/7-gorgeous-statement-necklaces-by-peggy-skemp/)
 - [forever 21 headbands](https://hair.allwomenstalk.com/happenin-headbands/)
+- [designer hair accessories](https://hair.allwomenstalk.com/lovely-designer-hair-accessories/)
+- [10 Fab-Looking Bangles ...](https://jewelry.allwomenstalk.com/10-fab-looking-bangles/)
+- [7 Sweet Little Rings ...](https://jewelry.allwomenstalk.com/7-sweet-little-rings/)
+- [7 Gorgeous Necklaces by Violet Bella ...](https://jewelry.allwomenstalk.com/7-gorgeous-necklaces-by-violet-bella/)
+- [8 Eye-Catching Big Rings ...](https://jewelry.allwomenstalk.com/8-eye-catching-big-rings/)
+- [cute love necklaces](https://jewelry.allwomenstalk.com/8-cute-necklaces-by-mark-poulin/)
+- [peggy skemp](https://jewelry.allwomenstalk.com/7-gorgeous-statement-necklaces-by-peggy-skemp/)
+- [is marc jacobs jewelry real](https://jewelry.allwomenstalk.com/7-hot-marc-jacobs-necklaces/)
 - [8 Fabulously Glamorous Bridal Jewelry Sets ...](https://wedding.allwomenstalk.com/fabulously-glamorous-bridal-jewelry-sets/)
 - [8 Amazing Brooches by Tiffany ...](https://jewelry.allwomenstalk.com/8-amazing-brooches-by-tiffany/)
 

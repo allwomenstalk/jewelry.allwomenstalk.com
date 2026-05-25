@@ -56,15 +56,15 @@ If you have a scarf that you feel is a bit drab, accessorize it before abandonin
 
 ## Related Posts
 
-- [Check out Anthropologies Girliest Accessories ...](https://fashion.allwomenstalk.com/fabulous-girly-accessories-from-anthropologie/)
-- [unique watch collection](https://jewelry.allwomenstalk.com/unique-watches-to-add-to-your-collection/)
-- [7 Gemstones for Your Day-to-Day Fashion Routine .....](https://jewelry.allwomenstalk.com/gemstones-for-your-day-to-day-fashion-routine/)
-- [7 Gemstones and What to Look for when Youre Jewelr...](https://jewelry.allwomenstalk.com/gemstones-and-what-to-look-for-when-youre-jewelry-shopping/)
-- [how to wear stud earrings](https://jewelry.allwomenstalk.com/stunning-stud-earrings-that-youll-want-to-wear-on-the-daily/)
 - [Too Much Bling 10 of the Most Expensive Celeb Enga...](https://celebs.allwomenstalk.com/too-much-bling-of-the-most-expensive-celeb-engagement-rings/)
 - [7 Great Necklaces from Mod Cloth to Add to Your Je...](https://jewelry.allwomenstalk.com/great-necklaces-from-mod-cloth-to-add-to-your-jewelry-box/)
-- [7 Must-Have Jewelry Pieces for Spring ...](https://jewelry.allwomenstalk.com/must-have-jewelry-pieces-for-spring/)
+- [unique watch collection](https://jewelry.allwomenstalk.com/unique-watches-to-add-to-your-collection/)
+- [7 Gemstones and What to Look for when Youre Jewelr...](https://jewelry.allwomenstalk.com/gemstones-and-what-to-look-for-when-youre-jewelry-shopping/)
+- [7 Gemstones for Your Day-to-Day Fashion Routine .....](https://jewelry.allwomenstalk.com/gemstones-for-your-day-to-day-fashion-routine/)
+- [Check out Anthropologies Girliest Accessories ...](https://fashion.allwomenstalk.com/fabulous-girly-accessories-from-anthropologie/)
+- [how to wear stud earrings](https://jewelry.allwomenstalk.com/stunning-stud-earrings-that-youll-want-to-wear-on-the-daily/)
 - [10 Beautiful Gold Necklaces Youll Never Want off Y...](https://jewelry.allwomenstalk.com/beautiful-gold-necklaces-youll-never-want-off-your-neck/)
+- [7 Must-Have Jewelry Pieces for Spring ...](https://jewelry.allwomenstalk.com/must-have-jewelry-pieces-for-spring/)
 - [pretty gemstones](https://jewelry.allwomenstalk.com/beautiful-gemstones-to-add-to-your-jewellery-collection/)
 - [7 Ways to Update Your Hairstyle with a Scarf ...](https://hair.allwomenstalk.com/ways-to-update-your-hairstyle-with-a-scarf/)
 - [7 Tips on How to Combine Your Jewelry with Style ....](https://jewelry.allwomenstalk.com/7-tips-on-how-to-combine-your-jewelry-with-style/)

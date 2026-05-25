@@ -42,16 +42,16 @@ Are you a fan of bib necklaces? And, if yes, would you ever consider making one?
 
 ## Related Posts
 
-- [game of thrones pumpkin carving](https://diy.allwomenstalk.com/amazing-game-of-thrones-craft-projects/)
 - [craft with plastic spoons](https://diy.allwomenstalk.com/sensational-plastic-spoon-craft-projects/)
-- [plates diy](https://diy.allwomenstalk.com/lovely-diy-decorative-plates/)
-- [cool crafts for teen](https://diy.allwomenstalk.com/fashion-crafts-for-teens/)
-- [valentine animal crafts](https://parenting.allwomenstalk.com/valentine-themed-animal-crafts-for-kids/)
-- [diy wire spool holder](https://diy.allwomenstalk.com/cool-and-clever-cable-spool-diy-projects/)
-- [wall basket ideas](https://diy.allwomenstalk.com/clever-ways-to-upcycle-baskets/)
-- [easy penny drawing](https://diy.allwomenstalk.com/amazingly-cool-penny-crafts/)
 - [crafts with thread](https://diy.allwomenstalk.com/beautifully-creative-thread-spool-craft-projects/)
+- [diy wire spool holder](https://diy.allwomenstalk.com/cool-and-clever-cable-spool-diy-projects/)
+- [valentine animal crafts](https://parenting.allwomenstalk.com/valentine-themed-animal-crafts-for-kids/)
+- [easy penny drawing](https://diy.allwomenstalk.com/amazingly-cool-penny-crafts/)
+- [plates diy](https://diy.allwomenstalk.com/lovely-diy-decorative-plates/)
+- [game of thrones pumpkin carving](https://diy.allwomenstalk.com/amazing-game-of-thrones-craft-projects/)
 - [wedding drink stirrers](https://diy.allwomenstalk.com/charming-ways-to-make-diy-cocktail-stirrers/)
+- [cool crafts for teen](https://diy.allwomenstalk.com/fashion-crafts-for-teens/)
+- [wall basket ideas](https://diy.allwomenstalk.com/clever-ways-to-upcycle-baskets/)
 - [7 Fashionable Cable Knits ...](https://fashion.allwomenstalk.com/7-fashionable-cable-knits/)
 - [7 DIY Clothing Ideas ...](https://allwomenstalk.com/diy-clothing-ideas/)
 

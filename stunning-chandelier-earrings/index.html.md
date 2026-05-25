@@ -63,16 +63,16 @@ As chandelier earrings command quite a bit of focus around your face, try and ke
 
 ## Related Posts
 
-- [juicy rings](https://jewelry.allwomenstalk.com/cute-juicy-couture-blings/)
-- [gorgeous chandelier](https://jewelry.allwomenstalk.com/7-gorgeous-chandelier-earrings/)
-- [tiffany nurse necklace](https://jewelry.allwomenstalk.com/gifts-for-grads-from-tiffany/)
-- [clip fastening earrings](https://jewelry.allwomenstalk.com/striking-clip-on-earrings/)
-- [8 Hot Hoop Earrings ...](https://jewelry.allwomenstalk.com/8-hot-hoop-earrings/)
 - [rings with crystals](https://jewelry.allwomenstalk.com/raw-crystal-rings/)
-- [filegrei jeweleru](https://jewelry.allwomenstalk.com/gorgeous-filigree-jewelry/)
-- [stylised skull](https://jewelry.allwomenstalk.com/skull-detailed-jewellery/)
+- [8 Hot Hoop Earrings ...](https://jewelry.allwomenstalk.com/8-hot-hoop-earrings/)
 - [7 Must-Have Leather Jewelry ...](https://jewelry.allwomenstalk.com/must-have-leather-jewelry/)
 - [david yurman moon necklace](https://jewelry.allwomenstalk.com/6-pieces-from-the-david-yurman-chiclet-collection/)
+- [juicy rings](https://jewelry.allwomenstalk.com/cute-juicy-couture-blings/)
+- [gorgeous chandelier](https://jewelry.allwomenstalk.com/7-gorgeous-chandelier-earrings/)
+- [filegrei jeweleru](https://jewelry.allwomenstalk.com/gorgeous-filigree-jewelry/)
+- [clip fastening earrings](https://jewelry.allwomenstalk.com/striking-clip-on-earrings/)
+- [tiffany nurse necklace](https://jewelry.allwomenstalk.com/gifts-for-grads-from-tiffany/)
+- [stylised skull](https://jewelry.allwomenstalk.com/skull-detailed-jewellery/)
 - [7 Cute Marc Jacobs Earrings ...](https://jewelry.allwomenstalk.com/7-cute-marc-jacobs-earrings/)
 - [7 Sweet Jewelry Pieces by Chocolate  Steel ...](https://jewelry.allwomenstalk.com/7-sweet-jewelry-pieces-by-chocolate-steel/)
 

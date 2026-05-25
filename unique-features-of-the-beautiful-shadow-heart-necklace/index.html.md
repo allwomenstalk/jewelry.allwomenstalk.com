@@ -58,16 +58,16 @@ The Shadow Heart pendant does not outwardly appear as the shape of an actual hea
 
 ## Related Posts
 
-- [statement diamond rings for women](https://jewelry.allwomenstalk.com/statement-engagement-rings-for-the-girl-who-loves-to-be-different/)
-- [cute bow necklace](https://jewelry.allwomenstalk.com/cute-pieces-of-bow-jewelry/)
-- [oyster pearl necklace](https://jewelry.allwomenstalk.com/the-worlds-your-oyster-when-you-wear-pearl-jewelry/)
 - [custom engraved religious bracelets for infants](https://jewelry.allwomenstalk.com/lovely-examples-of-baptism-jewelry/)
-- [coconut earrings](https://jewelry.allwomenstalk.com/pieces-of-coconut-jewelry-youll-go-nuts-for/)
-- [lock and key gift](https://jewelry.allwomenstalk.com/pieces-of-padlock-jewelry-that-will-hold-the-key-to-your-heart/)
+- [statement diamond rings for women](https://jewelry.allwomenstalk.com/statement-engagement-rings-for-the-girl-who-loves-to-be-different/)
 - [behind ear and neck tattoos](https://beauty.allwomenstalk.com/ear-tattoos-you-are-going-to-love/)
+- [cute bow necklace](https://jewelry.allwomenstalk.com/cute-pieces-of-bow-jewelry/)
+- [lock and key gift](https://jewelry.allwomenstalk.com/pieces-of-padlock-jewelry-that-will-hold-the-key-to-your-heart/)
 - [watercolor tattoo hummingbird](https://beauty.allwomenstalk.com/incredible-watercolor-tattoos/)
 - [dreamcatcher pendants](https://jewelry.allwomenstalk.com/pieces-of-dreamcatcher-jewelry-to-snap-up/)
 - [heart necklaces for valentines day](https://jewelry.allwomenstalk.com/items-of-heart-jewelry-to-complete-your-valentines-day-outfit/)
+- [coconut earrings](https://jewelry.allwomenstalk.com/pieces-of-coconut-jewelry-youll-go-nuts-for/)
+- [oyster pearl necklace](https://jewelry.allwomenstalk.com/the-worlds-your-oyster-when-you-wear-pearl-jewelry/)
 - [7 Fabulously Stunning and Unique Engagement Rings ...](https://wedding.allwomenstalk.com/fabulously-stunning-and-unique-engagement-rings/)
 - [7 Great Necklaces by Monserat De Lucca ...](https://jewelry.allwomenstalk.com/7-great-necklaces-by-monserat-de-lucca/)
 

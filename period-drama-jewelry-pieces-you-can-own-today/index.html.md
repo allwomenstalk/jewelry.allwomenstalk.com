@@ -56,16 +56,16 @@ There is rarely anything delicate about period drama jewelry pieces. But isn’t
 
 ## Related Posts
 
-- [online jewelry boutiques](https://jewelry.allwomenstalk.com/best-online-jewellery-boutiques-for-amazing-finds/)
-- [inexpensive diamond jewelry](https://jewelry.allwomenstalk.com/lovely-affordable-and-simple-diamond-rings/)
-- [jewelry chunks](https://jewelry.allwomenstalk.com/designer-jewelry-pieces-that-are-too-beautiful-to-ignore/)
-- [bridesmaid necklace gifts](https://jewelry.allwomenstalk.com/bridesmaid-jewelry-gifts-to-give-at-your-bridal-shower/)
 - [rainbow coours](https://lifestyle.allwomenstalk.com/colors-of-the-rainbow-and-what-they-symbolize/)
-- [turn of the century jewelry](https://jewelry.allwomenstalk.com/ways-jewelry-changed-during-the-20th-century/)
-- [pandora mothers day bracelet](https://jewelry.allwomenstalk.com/beautiful-pandora-bracelets-you-should-buy-for-mothers-day/)
+- [jewelry chunks](https://jewelry.allwomenstalk.com/designer-jewelry-pieces-that-are-too-beautiful-to-ignore/)
 - [types of necklaces for dresses](https://jewelry.allwomenstalk.com/types-of-necklaces-and-how-you-can-wear-them/)
+- [turn of the century jewelry](https://jewelry.allwomenstalk.com/ways-jewelry-changed-during-the-20th-century/)
+- [bridesmaid necklace gifts](https://jewelry.allwomenstalk.com/bridesmaid-jewelry-gifts-to-give-at-your-bridal-shower/)
+- [inexpensive diamond jewelry](https://jewelry.allwomenstalk.com/lovely-affordable-and-simple-diamond-rings/)
+- [online jewelry boutiques](https://jewelry.allwomenstalk.com/best-online-jewellery-boutiques-for-amazing-finds/)
 - [paris riche stylo pearl](https://jewelry.allwomenstalk.com/red-carpet-jewelry-pieces-you-should-mimic-to-look-glamorous/)
 - [inspired by you jewellery](https://jewelry.allwomenstalk.com/insect-inspired-pieces-of-jewellery-that-wont-creep-you-out/)
+- [pandora mothers day bracelet](https://jewelry.allwomenstalk.com/beautiful-pandora-bracelets-you-should-buy-for-mothers-day/)
 - [7 Sweet Jewelry Pieces by Chocolate  Steel ...](https://jewelry.allwomenstalk.com/7-sweet-jewelry-pieces-by-chocolate-steel/)
 - [7 Beautiful Floral Jewelry ...](https://jewelry.allwomenstalk.com/beautiful-floral-jewelry/)
 

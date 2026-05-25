@@ -56,16 +56,16 @@ You deck out the rest of your body with gems and glitter, so you might as well d
 
 ## Related Posts
 
-- [are feather earrings cultural appropriation](https://fashion.allwomenstalk.com/this-is-why-feathers-are-the-coolest-accessory-you-could-ever-own/)
-- [love couple skull tattoos](https://beauty.allwomenstalk.com/of-the-best-couples-tattoos-youll-ever-see/)
-- [couple tattoo.ideas](https://beauty.allwomenstalk.com/you-will-not-believe-these-stunning-celestial-tattoos/)
-- [pink skull meaning](https://jewelry.allwomenstalk.com/killer-pieces-of-skull-jewelry-to-indulge-your-rock-and-roll-side/)
-- [bohemian bracelet meaning](https://jewelry.allwomenstalk.com/boho-beauty-types-of-bohemian-themed-jewelry-to-enhance-your-summer-style/)
-- [pukka shells](https://diy.allwomenstalk.com/fabulous-diy-necklaces-that-will-rock-your-world/)
-- [heart with cross inside tattoo](https://beauty.allwomenstalk.com/wear-your-heart-on-your-sleeve-or-anywhere-with-these-breathtaking-heart-tattoos/)
 - [amp earrings](https://diy.allwomenstalk.com/incredibly-gorgeous-diy-earrings-to-amp-up-your-spring-style/)
-- [tattoo](https://beauty.allwomenstalk.com/here-are-tribal-tattoos-that-you-have-to-see-to-believe/)
+- [heart with cross inside tattoo](https://beauty.allwomenstalk.com/wear-your-heart-on-your-sleeve-or-anywhere-with-these-breathtaking-heart-tattoos/)
+- [pukka shells](https://diy.allwomenstalk.com/fabulous-diy-necklaces-that-will-rock-your-world/)
+- [couple tattoo.ideas](https://beauty.allwomenstalk.com/you-will-not-believe-these-stunning-celestial-tattoos/)
 - [the henna tattoo](https://beauty.allwomenstalk.com/incredible-henna-tattoo-design-inspirations/)
+- [tattoo](https://beauty.allwomenstalk.com/here-are-tribal-tattoos-that-you-have-to-see-to-believe/)
+- [love couple skull tattoos](https://beauty.allwomenstalk.com/of-the-best-couples-tattoos-youll-ever-see/)
+- [pink skull meaning](https://jewelry.allwomenstalk.com/killer-pieces-of-skull-jewelry-to-indulge-your-rock-and-roll-side/)
+- [are feather earrings cultural appropriation](https://fashion.allwomenstalk.com/this-is-why-feathers-are-the-coolest-accessory-you-could-ever-own/)
+- [bohemian bracelet meaning](https://jewelry.allwomenstalk.com/boho-beauty-types-of-bohemian-themed-jewelry-to-enhance-your-summer-style/)
 - [7 Trendy Eyeliner Colors You Need to Try ...](https://makeup.allwomenstalk.com/trendy-eyeliner-colors-you-need-to-try/)
 - [7 Super-Cute Eyeglasses for Every Face Shape ...](https://beauty.allwomenstalk.com/super-cute-eyeglasses-for-every-face-shape/)
 

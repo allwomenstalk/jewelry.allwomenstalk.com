@@ -44,15 +44,15 @@ I believe that everyone has the right to slack and be lazy at times, but ones go
 
 ## Related Posts
 
-- [signs shes in the closet](https://lifestyle.allwomenstalk.com/telltale-signs-you-need-to-clean-out-your-closet/)
-- [creating storage space](https://diy.allwomenstalk.com/sneaky-ways-to-create-more-storage-space/)
-- [pinterest hacks](https://lifestyle.allwomenstalk.com/life-hacks-from-pinterest-thatll-make-your-life-easier/)
-- [getting rid of books clutter](https://books.allwomenstalk.com/tips-for-reducing-book-clutter/)
-- [what to do with old magazines in good condition](https://diy.allwomenstalk.com/ways-to-recycle-your-old-magazines/)
 - [how to absorb odors in a room](https://lifestyle.allwomenstalk.com/weird-ways-to-get-rid-of-bad-smells-in-your-home/)
-- [toxic cleaning supplies](https://lifestyle.allwomenstalk.com/cleaning-supplies-every-natural-household-needs-to-eliminate-toxic-cleaners/)
+- [pinterest hacks](https://lifestyle.allwomenstalk.com/life-hacks-from-pinterest-thatll-make-your-life-easier/)
+- [signs shes in the closet](https://lifestyle.allwomenstalk.com/telltale-signs-you-need-to-clean-out-your-closet/)
 - [how to use baking soda around the house](https://lifestyle.allwomenstalk.com/ways-to-use-baking-soda-around-the-house/)
+- [getting rid of books clutter](https://books.allwomenstalk.com/tips-for-reducing-book-clutter/)
+- [creating storage space](https://diy.allwomenstalk.com/sneaky-ways-to-create-more-storage-space/)
 - [handy downs clothes](https://fashion.allwomenstalk.com/handy-hints-on-caring-for-clothing-you-should-try/)
+- [what to do with old magazines in good condition](https://diy.allwomenstalk.com/ways-to-recycle-your-old-magazines/)
+- [toxic cleaning supplies](https://lifestyle.allwomenstalk.com/cleaning-supplies-every-natural-household-needs-to-eliminate-toxic-cleaners/)
 - [so dorm pants](https://diy.allwomenstalk.com/ways-to-organize-your-closet-when-crammed-into-a-dorm-room/)
 - [8 Ways to Store Your Jewellery ...](https://jewelry.allwomenstalk.com/8-ways-to-store-your-jewellery/)
 - [7 Tips to Keep Your House Sparkling Clean ...](https://allwomenstalk.com/7-tips-to-keep-your-house-sparkling-clean/)

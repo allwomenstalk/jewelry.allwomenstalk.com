@@ -49,16 +49,16 @@ These are just a few of the pieces that Chocolate & Steel offer, and their line 
 
 ## Related Posts
 
-- [memorable necklaces](https://jewelry.allwomenstalk.com/memorable-necklaces/)
-- [mink jewellery](https://jewelry.allwomenstalk.com/7-beautiful-pieces-of-jewelry-by-wendy-mink/)
-- [8 Super-Cute Dinosaur Accessories ...](https://jewelry.allwomenstalk.com/8-super-cute-dinosaur-accessories/)
 - [elsa peretti mesh scarf necklace](https://jewelry.allwomenstalk.com/7-pretty-pieces-from-the-new-elsa-peretti-mesh-collection/)
 - [good luck charm ring](https://jewelry.allwomenstalk.com/7-good-luck-charms-by-tiffany/)
-- [tiffany gehry necklace](https://jewelry.allwomenstalk.com/7-gorgeous-jewelry-collections-by-frank-gehry-for-tiffany/)
+- [1837](https://jewelry.allwomenstalk.com/beautiful-pieces-from-the-tiffany-collection/)
 - [heart locks](https://jewelry.allwomenstalk.com/7-gorgeous-pieces-from-the-tiffany-locks-collection/)
 - [tiffanys charm](https://jewelry.allwomenstalk.com/9-beautiful-tiffany-charms/)
+- [memorable necklaces](https://jewelry.allwomenstalk.com/memorable-necklaces/)
+- [mink jewellery](https://jewelry.allwomenstalk.com/7-beautiful-pieces-of-jewelry-by-wendy-mink/)
 - [anomaly jewlery](https://jewelry.allwomenstalk.com/7-pretty-pieces-by-anomaly-jewelry/)
-- [1837](https://jewelry.allwomenstalk.com/beautiful-pieces-from-the-tiffany-collection/)
+- [tiffany gehry necklace](https://jewelry.allwomenstalk.com/7-gorgeous-jewelry-collections-by-frank-gehry-for-tiffany/)
+- [8 Super-Cute Dinosaur Accessories ...](https://jewelry.allwomenstalk.com/8-super-cute-dinosaur-accessories/)
 - [7 Sweet Purity Rings ...](https://jewelry.allwomenstalk.com/7-sweet-purity-rings/)
 - [7 Sweet Little Rings ...](https://jewelry.allwomenstalk.com/7-sweet-little-rings/)
 

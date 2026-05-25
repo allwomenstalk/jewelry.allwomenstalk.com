@@ -40,16 +40,16 @@ Jewelry is the perfect gift idea and a star studded accompaniment to any outfit.
 
 ## Related Posts
 
-- [budget pamper](https://beauty.allwomenstalk.com/budget-friendly-ways-to-pamper-yourself-at-home/)
-- [how can i fly first class cheap](https://travel.allwomenstalk.com/how-to-find-inexpensive-first-class-tickets/)
-- [smart spending habits](https://money.allwomenstalk.com/ways-to-be-smart-about-spending/)
 - [advantages of department stores](https://money.allwomenstalk.com/reasons-to-shop-at-thrift-stores-2/)
-- [cheaper alternatives to diamonds](https://jewelry.allwomenstalk.com/what-is-the-best-alternative-to-diamonds/)
 - [reasons to thrift](https://money.allwomenstalk.com/reasons-to-shop-at-thrift-stores/)
-- [glam yourself](https://lifestyle.allwomenstalk.com/ways-to-treat-yourself-without-breaking-the-bank/)
 - [teal colour](https://fashion.allwomenstalk.com/ways-to-look-expensive-on-a-budget/)
-- [how to break spending habits](https://money.allwomenstalk.com/easy-ways-to-break-bad-spending-habits/)
+- [smart spending habits](https://money.allwomenstalk.com/ways-to-be-smart-about-spending/)
+- [cheaper alternatives to diamonds](https://jewelry.allwomenstalk.com/what-is-the-best-alternative-to-diamonds/)
 - [low cost festival](https://music.allwomenstalk.com/amazing-tips-for-doing-festival-season-on-a-budget/)
+- [how can i fly first class cheap](https://travel.allwomenstalk.com/how-to-find-inexpensive-first-class-tickets/)
+- [how to break spending habits](https://money.allwomenstalk.com/easy-ways-to-break-bad-spending-habits/)
+- [glam yourself](https://lifestyle.allwomenstalk.com/ways-to-treat-yourself-without-breaking-the-bank/)
+- [budget pamper](https://beauty.allwomenstalk.com/budget-friendly-ways-to-pamper-yourself-at-home/)
 - [7 Budgeting Tips to save You Money ...](https://money.allwomenstalk.com/budgeting-tips-to-save-you-money/)
 - [8 Smart Tips on How to save Money ...](https://money.allwomenstalk.com/smart-tips-on-how-to-save-money/)
 

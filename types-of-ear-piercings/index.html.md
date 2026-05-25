@@ -62,16 +62,16 @@ I never thought ear piercing was such a complicated art – did you? Do you have
 
 ## Related Posts
 
-- [2x neck tattoo](https://beauty.allwomenstalk.com/these-nautical-tattoos-will-make-you-want-to-sail-the-seven-seas/)
-- [impressive jewelry](https://jewelry.allwomenstalk.com/you-wont-believe-what-you-can-use-these-jewelry-pieces-for/)
-- [what tattoos symbolize friendship](https://beauty.allwomenstalk.com/best-friend-tattoos-youll-be-dying-to-have/)
-- [small tattoo moon](https://beauty.allwomenstalk.com/the-daintiest-spots-for-a-small-tattoo/)
-- [simple dandelion tattoo](https://beauty.allwomenstalk.com/make-a-wish-with-these-gorgeous-dandelion-tattoos/)
 - [festival flower headband](https://hair.allwomenstalk.com/fabulous-coachella-inspired-flower-headbands-and-crowns/)
+- [impressive jewelry](https://jewelry.allwomenstalk.com/you-wont-believe-what-you-can-use-these-jewelry-pieces-for/)
 - [temporary body modification](https://beauty.allwomenstalk.com/temporary-body-modifications-for-tattoo-and-piercing-lovers/)
-- [cute color tattoos](https://beauty.allwomenstalk.com/gorgeous-rainbow-tattoos-youll-want-to-get-inked-today/)
+- [simple dandelion tattoo](https://beauty.allwomenstalk.com/make-a-wish-with-these-gorgeous-dandelion-tattoos/)
 - [wedding ring tattoo designs for couples](https://beauty.allwomenstalk.com/tiny-finger-tattoos-that-its-impossible-not-to-love/)
+- [small tattoo moon](https://beauty.allwomenstalk.com/the-daintiest-spots-for-a-small-tattoo/)
+- [2x neck tattoo](https://beauty.allwomenstalk.com/these-nautical-tattoos-will-make-you-want-to-sail-the-seven-seas/)
 - [bad luck opal](https://jewelry.allwomenstalk.com/show-some-opulence-with-this-opal-jewelry/)
+- [what tattoos symbolize friendship](https://beauty.allwomenstalk.com/best-friend-tattoos-youll-be-dying-to-have/)
+- [cute color tattoos](https://beauty.allwomenstalk.com/gorgeous-rainbow-tattoos-youll-want-to-get-inked-today/)
 - [Expression Rings ...](https://allwomenstalk.com/expression-rings/)
 - [Amethyst Engagement Ring and Other Gorgeous and Un...](https://wedding.allwomenstalk.com/gorgeous-and-unique-engagement-rings-with-colored-stones/)
 

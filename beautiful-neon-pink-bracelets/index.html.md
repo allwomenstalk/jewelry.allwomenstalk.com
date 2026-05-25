@@ -62,16 +62,16 @@ These are eight of the hippest, of-the-moment neon pink bracelets. Which ones ar
 
 ## Related Posts
 
-- [st patricks day accessories](https://lifestyle.allwomenstalk.com/most-festive-st-patricks-day-accessories/)
-- [elegant headbands](https://fashion.allwomenstalk.com/elegant-embellished-headbands/)
-- [statement ring meaning](https://jewelry.allwomenstalk.com/reasons-to-wear-statement-rings-this-season/)
-- [charlotte olympia zodiac shoes](https://fashion.allwomenstalk.com/star-sign-inspired-fashion-accessories/)
 - [cross accessories](https://fashion.allwomenstalk.com/cute-cross-accessories/)
 - [storing jewelry ideas](https://jewelry.allwomenstalk.com/creative-ways-to-store-jewelry/)
-- [colorful jewellery](https://jewelry.allwomenstalk.com/of-the-best-colourful-jewellery-buys/)
 - [chanel.band aid](https://fashion.allwomenstalk.com/most-ridiculous-designer-accessories/)
-- [where to source vintage jewelry](https://jewelry.allwomenstalk.com/best-places-to-find-vintage-jewelry/)
+- [charlotte olympia zodiac shoes](https://fashion.allwomenstalk.com/star-sign-inspired-fashion-accessories/)
+- [st patricks day accessories](https://lifestyle.allwomenstalk.com/most-festive-st-patricks-day-accessories/)
 - [neon accent](https://fashion.allwomenstalk.com/stylish-neon-accents/)
+- [elegant headbands](https://fashion.allwomenstalk.com/elegant-embellished-headbands/)
+- [colorful jewellery](https://jewelry.allwomenstalk.com/of-the-best-colourful-jewellery-buys/)
+- [statement ring meaning](https://jewelry.allwomenstalk.com/reasons-to-wear-statement-rings-this-season/)
+- [where to source vintage jewelry](https://jewelry.allwomenstalk.com/best-places-to-find-vintage-jewelry/)
 - [7 Gorgeous Necklaces by Violet Bella ...](https://jewelry.allwomenstalk.com/7-gorgeous-necklaces-by-violet-bella/)
 - [8 Pretty Pearl Necklaces ...](https://jewelry.allwomenstalk.com/pretty-pearl-necklaces/)
 

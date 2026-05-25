@@ -77,16 +77,16 @@ Which one do you love most? What will you wear it with?
 
 ## Related Posts
 
+- [bad luck opal](https://jewelry.allwomenstalk.com/show-some-opulence-with-this-opal-jewelry/)
+- [inner helix ear](https://jewelry.allwomenstalk.com/types-of-ear-piercings/)
+- [2x neck tattoo](https://beauty.allwomenstalk.com/these-nautical-tattoos-will-make-you-want-to-sail-the-seven-seas/)
+- [cute color tattoos](https://beauty.allwomenstalk.com/gorgeous-rainbow-tattoos-youll-want-to-get-inked-today/)
+- [small tattoo moon](https://beauty.allwomenstalk.com/the-daintiest-spots-for-a-small-tattoo/)
+- [temporary body modification](https://beauty.allwomenstalk.com/temporary-body-modifications-for-tattoo-and-piercing-lovers/)
+- [festival flower headband](https://hair.allwomenstalk.com/fabulous-coachella-inspired-flower-headbands-and-crowns/)
+- [wedding ring tattoo designs for couples](https://beauty.allwomenstalk.com/tiny-finger-tattoos-that-its-impossible-not-to-love/)
 - [what tattoos symbolize friendship](https://beauty.allwomenstalk.com/best-friend-tattoos-youll-be-dying-to-have/)
 - [impressive jewelry](https://jewelry.allwomenstalk.com/you-wont-believe-what-you-can-use-these-jewelry-pieces-for/)
-- [temporary body modification](https://beauty.allwomenstalk.com/temporary-body-modifications-for-tattoo-and-piercing-lovers/)
-- [cute color tattoos](https://beauty.allwomenstalk.com/gorgeous-rainbow-tattoos-youll-want-to-get-inked-today/)
-- [2x neck tattoo](https://beauty.allwomenstalk.com/these-nautical-tattoos-will-make-you-want-to-sail-the-seven-seas/)
-- [bad luck opal](https://jewelry.allwomenstalk.com/show-some-opulence-with-this-opal-jewelry/)
-- [festival flower headband](https://hair.allwomenstalk.com/fabulous-coachella-inspired-flower-headbands-and-crowns/)
-- [small tattoo moon](https://beauty.allwomenstalk.com/the-daintiest-spots-for-a-small-tattoo/)
-- [inner helix ear](https://jewelry.allwomenstalk.com/types-of-ear-piercings/)
-- [wedding ring tattoo designs for couples](https://beauty.allwomenstalk.com/tiny-finger-tattoos-that-its-impossible-not-to-love/)
 - [7 Simple Accessories for Summer Hair ...](https://hair.allwomenstalk.com/7-simple-accessories-for-summer-hair/)
 - [How to Select the Most Flattering Fashion Jewelry ...](https://allwomenstalk.com/how-to-select-the-most-flattering-fashion-jewelry-styles-2/)
 

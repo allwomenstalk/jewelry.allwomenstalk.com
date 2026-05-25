@@ -66,16 +66,16 @@ I love how Kate can mix her priciest items with her budget buys. The Duchess of 
 
 ## Related Posts
 
-- [tattoo ocean beach](https://beauty.allwomenstalk.com/beach-lovers-will-adore-these-ocean-inspired-tattoos/)
-- [lower back tattoo name](https://beauty.allwomenstalk.com/elegant-lower-back-tattoos-that-arent-at-all-trashy/)
-- [girls cuffed](https://jewelry.allwomenstalk.com/gorgeous-ear-cuffs-for-girls-who-want-an-edgier-look/)
-- [small and petite](https://beauty.allwomenstalk.com/tiny-tattoos-that-will-look-fantastic-on-petite-girls/)
-- [natural tatoo](https://beauty.allwomenstalk.com/nature-tattoos-that-every-environmentalist-will-want/)
-- [tattoo pain tolerance quiz](https://beauty.allwomenstalk.com/quick-tattoos-for-women-with-a-low-pain-tolerance/)
-- [newspaper test diamond](https://jewelry.allwomenstalk.com/how-to-tell-if-a-diamond-is-fake-or-the-real-deal/)
+- [indian accessories list](https://fashion.allwomenstalk.com/indian-accessories-every-woman-should-add-to-her-wardrobe/)
 - [types of sunglass shapes](https://fashion.allwomenstalk.com/types-of-sunglasses-suited-for-every-girls-face-shape/)
 - [ring toe sandals](https://jewelry.allwomenstalk.com/these-toe-rings-will-look-terrific-with-your-spring-sandals/)
-- [indian accessories list](https://fashion.allwomenstalk.com/indian-accessories-every-woman-should-add-to-her-wardrobe/)
+- [lower back tattoo name](https://beauty.allwomenstalk.com/elegant-lower-back-tattoos-that-arent-at-all-trashy/)
+- [natural tatoo](https://beauty.allwomenstalk.com/nature-tattoos-that-every-environmentalist-will-want/)
+- [tattoo ocean beach](https://beauty.allwomenstalk.com/beach-lovers-will-adore-these-ocean-inspired-tattoos/)
+- [newspaper test diamond](https://jewelry.allwomenstalk.com/how-to-tell-if-a-diamond-is-fake-or-the-real-deal/)
+- [girls cuffed](https://jewelry.allwomenstalk.com/gorgeous-ear-cuffs-for-girls-who-want-an-edgier-look/)
+- [tattoo pain tolerance quiz](https://beauty.allwomenstalk.com/quick-tattoos-for-women-with-a-low-pain-tolerance/)
+- [small and petite](https://beauty.allwomenstalk.com/tiny-tattoos-that-will-look-fantastic-on-petite-girls/)
 - [3 Photos of Kates Dramatic Look ...](https://celebs.allwomenstalk.com/kates-dramatic-look/)
 - [Kate Middleton: New Style Icon](https://allwomenstalk.com/kate-middleton-new-style-icon/)
 

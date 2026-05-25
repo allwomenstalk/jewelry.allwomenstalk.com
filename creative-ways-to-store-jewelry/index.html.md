@@ -56,16 +56,16 @@ I hope these ideas inspired you to create your own DIY storage options! What are
 
 ## Related Posts
 
-- [cross accessories](https://fashion.allwomenstalk.com/cute-cross-accessories/)
-- [colorful jewellery](https://jewelry.allwomenstalk.com/of-the-best-colourful-jewellery-buys/)
-- [where to source vintage jewelry](https://jewelry.allwomenstalk.com/best-places-to-find-vintage-jewelry/)
-- [elegant headbands](https://fashion.allwomenstalk.com/elegant-embellished-headbands/)
-- [statement ring meaning](https://jewelry.allwomenstalk.com/reasons-to-wear-statement-rings-this-season/)
-- [st patricks day accessories](https://lifestyle.allwomenstalk.com/most-festive-st-patricks-day-accessories/)
-- [neon accent](https://fashion.allwomenstalk.com/stylish-neon-accents/)
-- [penguin scrub tops](https://fashion.allwomenstalk.com/pretty-penguin-accessories/)
 - [charlotte olympia zodiac shoes](https://fashion.allwomenstalk.com/star-sign-inspired-fashion-accessories/)
+- [colorful jewellery](https://jewelry.allwomenstalk.com/of-the-best-colourful-jewellery-buys/)
+- [elegant headbands](https://fashion.allwomenstalk.com/elegant-embellished-headbands/)
 - [chanel.band aid](https://fashion.allwomenstalk.com/most-ridiculous-designer-accessories/)
+- [penguin scrub tops](https://fashion.allwomenstalk.com/pretty-penguin-accessories/)
+- [st patricks day accessories](https://lifestyle.allwomenstalk.com/most-festive-st-patricks-day-accessories/)
+- [where to source vintage jewelry](https://jewelry.allwomenstalk.com/best-places-to-find-vintage-jewelry/)
+- [neon accent](https://fashion.allwomenstalk.com/stylish-neon-accents/)
+- [cross accessories](https://fashion.allwomenstalk.com/cute-cross-accessories/)
+- [statement ring meaning](https://jewelry.allwomenstalk.com/reasons-to-wear-statement-rings-this-season/)
 - [7 Tips on How to Combine Your Jewelry with Style ....](https://jewelry.allwomenstalk.com/7-tips-on-how-to-combine-your-jewelry-with-style/)
 - [7 Tips on Caring for Your Jewelry ...](https://jewelry.allwomenstalk.com/7-tips-on-caring-for-your-jewelry/)
 

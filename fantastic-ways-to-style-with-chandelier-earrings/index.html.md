@@ -46,16 +46,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/2446721922258507
 
 ## Related Posts
 
-- [upcoming jewelry trends](https://jewelry.allwomenstalk.com/jewelry-trends-to-take-note-of/)
 - [500 carat diamond](https://wedding.allwomenstalk.com/most-stunning-celebrity-engagement-rings/)
 - [significant piece of jewelry](https://jewelry.allwomenstalk.com/classic-jewelry-pieces-to-invest-in/)
-- [dress to impress gothic romance](https://fashion.allwomenstalk.com/gothic-romance-fall-pieces/)
-- [color le stylo emerald conquest](https://jewelry.allwomenstalk.com/haute-hair-jewelry-pieces/)
-- [dimand earrings](https://jewelry.allwomenstalk.com/styles-of-cute-christmas-jewelry-wardrobe/)
 - [cameo jewelry box](https://jewelry.allwomenstalk.com/chic-cameo-jewelry-pieces-to-die-for-2/)
+- [dress to impress gothic romance](https://fashion.allwomenstalk.com/gothic-romance-fall-pieces/)
 - [statement collar](https://fashion.allwomenstalk.com/stylish-statement-collars/)
-- [stylish ear cuffs](https://jewelry.allwomenstalk.com/on-trend-ear-cuffs/)
+- [upcoming jewelry trends](https://jewelry.allwomenstalk.com/jewelry-trends-to-take-note-of/)
+- [color le stylo emerald conquest](https://jewelry.allwomenstalk.com/haute-hair-jewelry-pieces/)
 - [collard shirt accessory](https://jewelry.allwomenstalk.com/cool-collar-tip-accessories/)
+- [dimand earrings](https://jewelry.allwomenstalk.com/styles-of-cute-christmas-jewelry-wardrobe/)
+- [stylish ear cuffs](https://jewelry.allwomenstalk.com/on-trend-ear-cuffs/)
 - [7 Tips on How to Combine Your Jewelry with Style ....](https://jewelry.allwomenstalk.com/7-tips-on-how-to-combine-your-jewelry-with-style/)
 - [7 Ways to Wear the Most Glamorous Trends ...](https://allwomenstalk.com/7-ways-to-wear-the-most-glamorous-trends/)
 

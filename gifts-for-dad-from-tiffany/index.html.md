@@ -76,16 +76,16 @@ What gift do you want to get your dad from the list?
 
 ## Related Posts
 
-- [boyfriend care package ideas](https://love.allwomenstalk.com/unique-gift-ideas-for-your-boyfriend/)
 - [gifts under 50 for him](https://lifestyle.allwomenstalk.com/best-gifts-for-men-under-50/)
-- [8 Best Gifts for Girlfriends ...](https://love.allwomenstalk.com/best-gifts-for-girlfriends/)
 - [15 Homemade Gift Ideas Theyll Love ...](https://lifestyle.allwomenstalk.com/homemade-gift-ideas-theyll-love/)
 - [the best gifts for teachers](https://lifestyle.allwomenstalk.com/best-gifts-for-teachers/)
-- [9 Wonderfully Pleasant Gifts for a Hostess That Wi...](https://lifestyle.allwomenstalk.com/wonderfully-pleasant-gifts-for-a-hostess-that-will-make-you-look-like-a-perfect-guest/)
 - [gifts for girls 4 7 geeky](https://lifestyle.allwomenstalk.com/gifts-for-the-nerd-in-your-life/)
 - [gift ideas for your partner](https://love.allwomenstalk.com/unique-gift-ideas-for-your-partner/)
 - [singing pickle ornament](https://lifestyle.allwomenstalk.com/giveaway-contest-townsend-custom-gifts/)
 - [homemade christmas gift](https://lifestyle.allwomenstalk.com/unbelievably-delectable-homemade-christmas-gift-ideas/)
+- [9 Wonderfully Pleasant Gifts for a Hostess That Wi...](https://lifestyle.allwomenstalk.com/wonderfully-pleasant-gifts-for-a-hostess-that-will-make-you-look-like-a-perfect-guest/)
+- [boyfriend care package ideas](https://love.allwomenstalk.com/unique-gift-ideas-for-your-boyfriend/)
+- [8 Best Gifts for Girlfriends ...](https://love.allwomenstalk.com/best-gifts-for-girlfriends/)
 - [11 Fashionable Christmas Gifts Your Guy Will Love ...](https://fashion.allwomenstalk.com/fashionable-christmas-gifts-your-guy-will-love/)
 - [Fathers Day Gift Ideas ...](https://allwomenstalk.com/fathers-day-gift-ideas-the-bag-snob-a-selective-editorial-on-designer-bags/)
 
