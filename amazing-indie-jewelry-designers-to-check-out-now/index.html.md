@@ -3,7 +3,7 @@ title: "7 Amazing Indie Jewelry Designers to Check out Now!"
 description: "Buket Birlik; Lively Leaf; Drifted Jewellery; Sonrisa Jewelry; Mirabilio Designs; More ..."
 url: "https://jewelry.allwomenstalk.com/amazing-indie-jewelry-designers-to-check-out-now/"
 category: "jewelry"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Amazing Indie Jewelry Designers to Check out Now!
@@ -59,13 +59,13 @@ Do you own any pieces from the designers I mentioned? If not, which one inspires
 - [cuff bracelet meaning](https://jewelry.allwomenstalk.com/alex-and-ani-bangle-bracelets-and-their-meanings/)
 - [lochers paris](https://fashion.allwomenstalk.com/lochers-proves-your-sense-of-humor-is-the-most-stylish-accessory/)
 - [how are glass paperweights made](https://lifestyle.allwomenstalk.com/photos-that-make-a-gallery-of-gorgeous-glass-paperweights/)
-- [heart shape craft](https://lifestyle.allwomenstalk.com/heart-shaped-things-that-raise-a-smile/)
 - [princess j feather collection](https://jewelry.allwomenstalk.com/pieces-of-feather-jewelry-to-add-to-your-collection/)
+- [sterling silver midi rings](https://jewelry.allwomenstalk.com/majorly-stylish-midi-rings-for-fashionable-fingers/)
+- [heart shape craft](https://lifestyle.allwomenstalk.com/heart-shaped-things-that-raise-a-smile/)
 - [paris riche blinged brilliant](https://lifestyle.allwomenstalk.com/ways-swarovski-takes-a-thing-to-bling/)
 - [blue nile cocktail rings](https://jewelry.allwomenstalk.com/stunning-cocktail-rings-for-any-party/)
 - [gear heart necklace](https://jewelry.allwomenstalk.com/shift-your-jewelry-into-gear-with-kinekt-designs-heart-necklace/)
 - [nevertheless butterfly tattoo wallpaper](https://lifestyle.allwomenstalk.com/beautiful-examples-of-butterfly-art/)
-- [sterling silver midi rings](https://jewelry.allwomenstalk.com/majorly-stylish-midi-rings-for-fashionable-fingers/)
 - [7 Beautiful Pieces of Jewelry by Wendy Mink ...](https://jewelry.allwomenstalk.com/7-beautiful-pieces-of-jewelry-by-wendy-mink/)
 - [8 Animal Inspired Pieces of Jewelry ...](https://jewelry.allwomenstalk.com/8-animal-inspired-pieces-of-jewelry/)
 

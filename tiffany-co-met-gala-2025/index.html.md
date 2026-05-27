@@ -3,7 +3,7 @@ title: "J Balvins Pink Ensemble Has Everyone Talking About..."
 description: "Hailey Bieber: Enchantment in Diamonds; J Balvin: A Symphony in Pink; Nick Jonas: Men of Style and Substance; Regé-Jean Page: The Ode to Royalty; Tiffany & Co.: Crafting Tomorrow's Heirlooms Today; More ..."
 url: "https://jewelry.allwomenstalk.com/tiffany-co-met-gala-2025/"
 category: "jewelry"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # J Balvins Pink Ensemble Has Everyone Talking About...
