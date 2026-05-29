@@ -3,7 +3,7 @@ title: "Belle poque: When Nostalgia Takes You..."
 description: "The Margherita Collection: Blooming with Beauty; Mimosa: A Serenade to Femininity; Belle Époque: A Nostalgic Journey; More ..."
 url: "https://jewelry.allwomenstalk.com/discover-damiani-iconic-collections/"
 category: "jewelry"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # Belle poque: When Nostalgia Takes You...

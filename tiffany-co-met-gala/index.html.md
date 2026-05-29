@@ -3,7 +3,7 @@ title: "What Made Tiffany & Co.s High Jewelry Shine Brighter Than Ever..."
 description: "The Timeless Allure of Akoya Pearls; Chance The Rapper’s Chic Details; Reflections on a Night of Glamour; More ..."
 url: "https://jewelry.allwomenstalk.com/tiffany-co-met-gala/"
 category: "jewelry"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # What Made Tiffany & Co.s High Jewelry Shine Brighter Than Ever...
