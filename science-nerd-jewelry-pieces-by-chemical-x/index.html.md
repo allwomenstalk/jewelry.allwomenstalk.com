@@ -3,7 +3,7 @@ title: "7 Science-Nerd Jewelry Pieces by Chemical X ..."
 description: "Dinosaur Earring Set; Capacitor Bracelet - Black; Dinosaur Bracelet; 'the Original Vegetarian' Dinosaur Necklace; Hardware Earrings; More ..."
 url: "https://jewelry.allwomenstalk.com/science-nerd-jewelry-pieces-by-chemical-x/"
 category: "jewelry"
-last_updated: "2026-05-29"
+last_updated: "2026-06-02"
 ---
 
 # 7 Science\-Nerd Jewelry Pieces by Chemical X ...
@@ -51,15 +51,15 @@ Top Photo Credit: [additionsstyle](https://web.archive.org/web/https://www.flick
 
 ## Related Posts
 
-- [7 bracelet set](https://jewelry.allwomenstalk.com/bracelet-sets/)
 - [7 Pairs of Colored Earrings ...](https://jewelry.allwomenstalk.com/pairs-of-colored-earrings/)
-- [7 Cute Jewelry Pieces by Metal Smitten ...](https://jewelry.allwomenstalk.com/cute-jewelry-pieces-by-metal-smitten/)
-- [betsey johnson skull jewelry](https://jewelry.allwomenstalk.com/fun-betsey-johnson-necklaces/)
-- [tiffany bangle design](https://jewelry.allwomenstalk.com/gorgeous-tiffany-bangles/)
-- [paris stylo hollywood icon](https://jewelry.allwomenstalk.com/pieces-of-jewelry-you-can-make-on-your-own/)
-- [7 Beautiful Floral Jewelry ...](https://jewelry.allwomenstalk.com/beautiful-floral-jewelry/)
-- [7 Tips for Choosing an Engagement Ring ...](https://jewelry.allwomenstalk.com/tips-for-choosing-an-engagement-ring/)
 - [artificial stone accessory](https://jewelry.allwomenstalk.com/natural-stone-accessories/)
+- [7 Tips for Choosing an Engagement Ring ...](https://jewelry.allwomenstalk.com/tips-for-choosing-an-engagement-ring/)
+- [tiffany bangle design](https://jewelry.allwomenstalk.com/gorgeous-tiffany-bangles/)
+- [7 Beautiful Floral Jewelry ...](https://jewelry.allwomenstalk.com/beautiful-floral-jewelry/)
+- [betsey johnson skull jewelry](https://jewelry.allwomenstalk.com/fun-betsey-johnson-necklaces/)
+- [7 Cute Jewelry Pieces by Metal Smitten ...](https://jewelry.allwomenstalk.com/cute-jewelry-pieces-by-metal-smitten/)
+- [7 bracelet set](https://jewelry.allwomenstalk.com/bracelet-sets/)
+- [paris stylo hollywood icon](https://jewelry.allwomenstalk.com/pieces-of-jewelry-you-can-make-on-your-own/)
 - [tennis bracelet womens tiffany](https://jewelry.allwomenstalk.com/tiffany-bracelets-i-covet/)
 - [7 Great Necklaces by Monserat De Lucca ...](https://jewelry.allwomenstalk.com/7-great-necklaces-by-monserat-de-lucca/)
 - [7 Sweet Jewelry Pieces by Chocolate  Steel ...](https://jewelry.allwomenstalk.com/7-sweet-jewelry-pieces-by-chocolate-steel/)

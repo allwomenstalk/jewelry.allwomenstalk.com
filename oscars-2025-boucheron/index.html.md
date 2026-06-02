@@ -3,7 +3,7 @@ title: "This Breathtaking Look from Felicity Jones Had Everyone Talking ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://jewelry.allwomenstalk.com/oscars-2025-boucheron/"
 category: "jewelry"
-last_updated: "2026-05-29"
+last_updated: "2026-06-02"
 ---
 
 # This Breathtaking Look from Felicity Jones Had Everyone Talking ...

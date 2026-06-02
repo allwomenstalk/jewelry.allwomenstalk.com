@@ -3,7 +3,7 @@ title: "7 Gorgeous Pieces from the Tiffany Locks Collection ..."
 description: "Tiffany Locks Heart Lock Pendant; Tiffany Locks Arc Lock Bracelet; Tiffany Locks Vintage Lock Pendant; Tiffany Locks Emblem Lock; Tiffany Locks Heart Lock Pendant; More ..."
 url: "https://jewelry.allwomenstalk.com/7-gorgeous-pieces-from-the-tiffany-locks-collection/"
 category: "jewelry"
-last_updated: "2026-05-29"
+last_updated: "2026-06-02"
 ---
 
 # 7 Gorgeous Pieces from the Tiffany Locks Collection ...
@@ -49,16 +49,16 @@ These are just a few of the - literally - dozens of gorgeous pieces in the Tiffa
 
 ## Related Posts
 
-- [tiffany crown key](https://jewelry.allwomenstalk.com/7-beautiful-tiffany-key-pendants/)
-- [tiffany gehry necklace](https://jewelry.allwomenstalk.com/7-gorgeous-jewelry-collections-by-frank-gehry-for-tiffany/)
-- [loveajewelry](https://jewelry.allwomenstalk.com/8-ways-to-store-your-jewellery/)
-- [lucca scooter](https://jewelry.allwomenstalk.com/7-great-necklaces-by-monserat-de-lucca/)
-- [7 Beautiful Hand Stamped Jewelry Pieces ...](https://jewelry.allwomenstalk.com/7-beautiful-hand-stamped-jewelry-pieces/)
-- [pretty barrettes for adults](https://hair.allwomenstalk.com/7-beautiful-barrettes/)
-- [8 Amazing Bangles ...](https://jewelry.allwomenstalk.com/8-amazing-bangles/)
-- [8 Cute Rings for Spring ...](https://jewelry.allwomenstalk.com/8-cute-rings-for-spring/)
-- [mark poulin jewelry](https://jewelry.allwomenstalk.com/8-darling-rings-by-mark-poulin/)
 - [paloma graffiti](https://jewelry.allwomenstalk.com/7-pretty-pieces-from-the-paloma-picasso-graffiti-collection/)
+- [8 Cute Rings for Spring ...](https://jewelry.allwomenstalk.com/8-cute-rings-for-spring/)
+- [tiffany crown key](https://jewelry.allwomenstalk.com/7-beautiful-tiffany-key-pendants/)
+- [7 Beautiful Hand Stamped Jewelry Pieces ...](https://jewelry.allwomenstalk.com/7-beautiful-hand-stamped-jewelry-pieces/)
+- [loveajewelry](https://jewelry.allwomenstalk.com/8-ways-to-store-your-jewellery/)
+- [8 Amazing Bangles ...](https://jewelry.allwomenstalk.com/8-amazing-bangles/)
+- [tiffany gehry necklace](https://jewelry.allwomenstalk.com/7-gorgeous-jewelry-collections-by-frank-gehry-for-tiffany/)
+- [lucca scooter](https://jewelry.allwomenstalk.com/7-great-necklaces-by-monserat-de-lucca/)
+- [pretty barrettes for adults](https://hair.allwomenstalk.com/7-beautiful-barrettes/)
+- [mark poulin jewelry](https://jewelry.allwomenstalk.com/8-darling-rings-by-mark-poulin/)
 - [8 Gorgeous Tiffany Handbags ...](https://bags.allwomenstalk.com/8-gorgeous-tiffany-handbags/)
 - [8 Gorgeous Tiffany Key Rings ...](https://jewelry.allwomenstalk.com/8-gorgeous-tiffany-key-rings/)
 
