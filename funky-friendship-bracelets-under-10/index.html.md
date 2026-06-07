@@ -1,12 +1,12 @@
 ---
-title: "9 Funky Friendship Bracelets under 10 ..."
+title: "9 Funky Friendship Bracelets under $10 ..."
 description: "ASOS Pom Pom Coil Friendship Bracelet; French Connection Light Pink Friendship Bracelet; Ashiana Skinny Woven Friendship Bracelet; ASOS Beads Friendship Bracelet; Forever21 Rhinestone Friendship Bracelet; More ..."
 url: "https://jewelry.allwomenstalk.com/funky-friendship-bracelets-under-10/"
 category: "jewelry"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 9 Funky Friendship Bracelets under 10 ...
+# 9 Funky Friendship Bracelets under $10 ...
 
 **Friendship bracelets are everywhere right** now. Once only a token of childhood friendships, the friendship bracelet is adorning the wrist of many fashion savvy adults. Whether you choose woven or beaded styles, a colourful friendship bracelet is a fun way to accent an outfit. Check out the following colourful friendship bracelets below. The best bit? They’re all under $10!
 
@@ -74,15 +74,15 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/8824247391827562
 ## Related Posts
 
 - [best statement earrings](https://jewelry.allwomenstalk.com/fabulous-statement-earrings-for-summer/)
-- [cheap cute accessories](https://jewelry.allwomenstalk.com/cute-fun-accessories-under-10/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/sleek-aviator-sunglasses/)
-- [inexpensive costume jewelry](https://jewelry.allwomenstalk.com/amazingly-affordable-pieces-of-costume-jewelry-for-fall/)
-- [are black diamonds cheaper than white](https://wedding.allwomenstalk.com/reasons-to-go-with-a-black-diamond-engagement-ring/)
 - [short neon hair](https://hair.allwomenstalk.com/standout-neon-hair-accessories/)
 - [wayfarer sunglasses](https://fashion.allwomenstalk.com/fresh-takes-on-classic-wayfarer-sunglasses/)
+- [are black diamonds cheaper than white](https://wedding.allwomenstalk.com/reasons-to-go-with-a-black-diamond-engagement-ring/)
 - [seashell accessories](https://fashion.allwomenstalk.com/adorable-seashell-accessories/)
 - [retro accessories for ladies](https://fashion.allwomenstalk.com/retro-looking-fashion-accessories/)
+- [cheap cute accessories](https://jewelry.allwomenstalk.com/cute-fun-accessories-under-10/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/sleek-aviator-sunglasses/)
 - [peter pan necklaces](https://fashion.allwomenstalk.com/precious-diy-peter-pan-collar-necklaces/)
+- [inexpensive costume jewelry](https://jewelry.allwomenstalk.com/amazingly-affordable-pieces-of-costume-jewelry-for-fall/)
 - [7 Cute Silly Bandz ...](https://parenting.allwomenstalk.com/7-cute-silly-bandz/)
 - [8 Stylish Friendship Bracelets ...](https://jewelry.allwomenstalk.com/stylish-friendship-bracelets/)
 

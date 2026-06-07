@@ -1,12 +1,12 @@
 ---
-title: "The Hidden Details of Sydney Sweeneys De Beers Jewelry at the Met Gala..."
+title: "The Hidden Details of Sydney Sweeney's De Beers Jewelry at the Met Gala..."
 description: "The Story Behind the Solitaire Ring; Diamond Studs and Vivid Yellow Pear-Shaped Earrings; Why De Beers Enchants Us; Your Turn to Shine; More ..."
 url: "https://jewelry.allwomenstalk.com/sydney-sweeney-de-beers-jewelry-met-gala/"
 category: "jewelry"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# The Hidden Details of Sydney Sweeneys De Beers Jewelry at the Met Gala...
+# The Hidden Details of Sydney Sweeney's De Beers Jewelry at the Met Gala...
 
 When you think of the Met Gala, you likely imagine brilliant fashion, iconic moments, and above all, dazzling jewelry. This year, Sydney Sweeney did not disappoint, capturing the spotlight wearing exquisite pieces from [De Beers](https://www.instagram.com/debeersofficial/). Her ensemble wasn’t just about style-it was about storytelling through elegance.
 

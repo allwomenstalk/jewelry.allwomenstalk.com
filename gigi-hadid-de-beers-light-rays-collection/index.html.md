@@ -1,12 +1,12 @@
 ---
-title: "Gigi Hadids Accessories: How Did They Steal the Show?"
+title: "Gigi Hadid's Accessories: How Did They Steal the Show?"
 description: "The Fringe Earrings That Sparkle Like Stars; A Closer Look at the Double Crown Ring; Gigi's Look: A Testament to the Art of Accessorizing; The Brand's Timeless Innovation; More ..."
 url: "https://jewelry.allwomenstalk.com/gigi-hadid-de-beers-light-rays-collection/"
 category: "jewelry"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Gigi Hadids Accessories: How Did They Steal the Show?
+# Gigi Hadid's Accessories: How Did They Steal the Show?
 
 Under the dazzling lights of the Met Gala 2025, an evening in New York City where fashion meets artistry, Gigi Hadid once again captured all eyes. This night was special. The glamour of the gala was punctuated by Gigi's breathtaking presence, adorned with exquisite pieces from the [De Beers](https://www.instagram.com/debeersofficial) "The Alchemist of Light" High Jewellery collection. Her choice of accessories was nothing short of spectacular, radiating sophistication and flaunting the unrivaled craftsmanship of the renowned brand.
 

@@ -1,12 +1,12 @@
 ---
-title: "What Makes the Cur Entrelac a Must-See This Season"
+title: "What Makes the Cœur Entrelacé a Must-See This Season"
 description: "The Timeless Elegance of the Cœur Entrelacé; The Vibrancy of the Tresse Bracelet; More ..."
 url: "https://jewelry.allwomenstalk.com/poiray-spring-jewelry-collection/"
 category: "jewelry"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# What Makes the Cur Entrelac a Must\-See This Season
+# What Makes the Cœur Entrelacé a Must\-See This Season
 
 Imagine a gentle spring breeze, the scent of blooming flowers, and the warm sunshine kissing your skin. This enchanting atmosphere is exactly what [Poiray's](https://www.instagram.com/poirayparis/) latest collection brings to life. As nature awakens with hues of cappuccino and apple green, Poiray invites us to embrace these beautiful colors through their new cord bracelets. These delicate pieces encapsulate the essence of spring, almost like a magical walk through the Tuileries Garden where each flower blossoms into a new story.
 

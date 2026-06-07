@@ -3,7 +3,7 @@ title: "The Secret Garden of Van Cleef & Arpels’ Flowerlace Collection"
 description: "The Allure of Nature's Curves; Elegance in Every Detail; A Garden Gathering; A Connection to Nature’s Wonders; More ..."
 url: "https://jewelry.allwomenstalk.com/van-cleef-arpels-flowerlace-collection/"
 category: "jewelry"
-last_updated: "2026-06-05"
+last_updated: "2026-06-07"
 ---
 
 # The Secret Garden of Van Cleef & Arpels’ Flowerlace Collection
