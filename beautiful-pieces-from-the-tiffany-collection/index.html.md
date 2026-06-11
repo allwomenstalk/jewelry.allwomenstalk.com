@@ -3,7 +3,7 @@ title: "7 Beautiful Pieces from the Tiffany 1837 Collection ..."
 description: "Tiffany 1837 Interlocking Circles Bangle; Tiffany 1837 Interlocking Circles Lariat; Tiffany 1837 Interlocking Circles Pendant; Tiffany 1837 Ring; Tiffany 1837 Toggle Bracelet; More ..."
 url: "https://jewelry.allwomenstalk.com/beautiful-pieces-from-the-tiffany-collection/"
 category: "jewelry"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Beautiful Pieces from the Tiffany 1837 Collection ...
@@ -49,16 +49,16 @@ These are just a few of the dozens of gorgeous pieces in the Tiffany 1837 collec
 
 ## Related Posts
 
+- [heart locks](https://jewelry.allwomenstalk.com/7-gorgeous-pieces-from-the-tiffany-locks-collection/)
 - [paloma graffiti](https://jewelry.allwomenstalk.com/7-pretty-pieces-from-the-paloma-picasso-graffiti-collection/)
 - [loveajewelry](https://jewelry.allwomenstalk.com/8-ways-to-store-your-jewellery/)
 - [memorable necklaces](https://jewelry.allwomenstalk.com/memorable-necklaces/)
-- [tiffany gehry necklace](https://jewelry.allwomenstalk.com/7-gorgeous-jewelry-collections-by-frank-gehry-for-tiffany/)
-- [tiffany crown key](https://jewelry.allwomenstalk.com/7-beautiful-tiffany-key-pendants/)
-- [8 Cute Rings for Spring ...](https://jewelry.allwomenstalk.com/8-cute-rings-for-spring/)
-- [pretty barrettes for adults](https://hair.allwomenstalk.com/7-beautiful-barrettes/)
-- [heart locks](https://jewelry.allwomenstalk.com/7-gorgeous-pieces-from-the-tiffany-locks-collection/)
 - [lucca scooter](https://jewelry.allwomenstalk.com/7-great-necklaces-by-monserat-de-lucca/)
+- [tiffany gehry necklace](https://jewelry.allwomenstalk.com/7-gorgeous-jewelry-collections-by-frank-gehry-for-tiffany/)
 - [8 Amazing Bangles ...](https://jewelry.allwomenstalk.com/8-amazing-bangles/)
+- [pretty barrettes for adults](https://hair.allwomenstalk.com/7-beautiful-barrettes/)
+- [8 Cute Rings for Spring ...](https://jewelry.allwomenstalk.com/8-cute-rings-for-spring/)
+- [tiffany crown key](https://jewelry.allwomenstalk.com/7-beautiful-tiffany-key-pendants/)
 - [8 Gorgeous Tiffany Key Rings ...](https://jewelry.allwomenstalk.com/8-gorgeous-tiffany-key-rings/)
 - [9 Beautiful Tiffany Charms ...](https://jewelry.allwomenstalk.com/9-beautiful-tiffany-charms/)
 

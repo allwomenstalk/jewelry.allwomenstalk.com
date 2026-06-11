@@ -3,7 +3,7 @@ title: "What Makes the Cœur Entrelacé a Must-See This Season"
 description: "The Timeless Elegance of the Cœur Entrelacé; The Vibrancy of the Tresse Bracelet; More ..."
 url: "https://jewelry.allwomenstalk.com/poiray-spring-jewelry-collection/"
 category: "jewelry"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # What Makes the Cœur Entrelacé a Must\-See This Season

@@ -3,7 +3,7 @@ title: "21 Pieces of Jewelry Inspired by Books ..."
 description: "Some Pig Necklace; The Little Prince Necklace; Book Eating Boy Necklace; Lord of the (Ear)rings; Hermione's Time Turner Necklace; More ..."
 url: "https://jewelry.allwomenstalk.com/pieces-of-jewelry-inspired-by-books/"
 category: "jewelry"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 21 Pieces of Jewelry Inspired by Books ...
@@ -147,16 +147,16 @@ Let President Snow know whose side you're on.
 
 ## Related Posts
 
-- [pirate tattoos](https://beauty.allwomenstalk.com/majestic-mermaid-tattoos-meant-to-make-you-smile/)
-- [ear cuffs meaning](https://jewelry.allwomenstalk.com/sexy-ear-cuffs-for-women-without-any-piercings/)
-- [statement necklace meaning](https://jewelry.allwomenstalk.com/statement-necklaces-to-add-umph-to-any-outfit/)
 - [statement necklaces for black dress](https://jewelry.allwomenstalk.com/statement-necklaces-thatll-add-sparkle-to-your-wardrobe/)
-- [irish memorial tattoos](https://beauty.allwomenstalk.com/memorial-tattoos-for-anyone-youve-loved-and-lost/)
-- [bed bath and beyond jewelry organizer](https://jewelry.allwomenstalk.com/unique-jewelry-stands-to-keep-your-accessories-organized/)
-- [paris riche stylo blinged and](https://jewelry.allwomenstalk.com/fab-bling-inspired-by-the-star-wars-franchise/)
-- [unique mother daughter tattoos](https://beauty.allwomenstalk.com/mother-daughter-tattoos-thatll-create-a-lifelong-bond/)
 - [conch piercing starter jewelry](https://jewelry.allwomenstalk.com/unique-multiple-piercing-looks-youll-love/)
+- [pirate tattoos](https://beauty.allwomenstalk.com/majestic-mermaid-tattoos-meant-to-make-you-smile/)
+- [irish memorial tattoos](https://beauty.allwomenstalk.com/memorial-tattoos-for-anyone-youve-loved-and-lost/)
+- [paris riche stylo blinged and](https://jewelry.allwomenstalk.com/fab-bling-inspired-by-the-star-wars-franchise/)
+- [bed bath and beyond jewelry organizer](https://jewelry.allwomenstalk.com/unique-jewelry-stands-to-keep-your-accessories-organized/)
 - [cutest tree](https://jewelry.allwomenstalk.com/heres-the-cutest-holiday-tree-themed-jewelry-out-there/)
+- [statement necklace meaning](https://jewelry.allwomenstalk.com/statement-necklaces-to-add-umph-to-any-outfit/)
+- [unique mother daughter tattoos](https://beauty.allwomenstalk.com/mother-daughter-tattoos-thatll-create-a-lifelong-bond/)
+- [ear cuffs meaning](https://jewelry.allwomenstalk.com/sexy-ear-cuffs-for-women-without-any-piercings/)
 - [7 Beautiful Pieces of Jewelry by Wendy Mink ...](https://jewelry.allwomenstalk.com/7-beautiful-pieces-of-jewelry-by-wendy-mink/)
 - [8 Animal Inspired Pieces of Jewelry ...](https://jewelry.allwomenstalk.com/8-animal-inspired-pieces-of-jewelry/)
 
