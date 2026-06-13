@@ -3,7 +3,7 @@ title: "When Bvlgari's Polychroma Stole the Spotlight at the Met Gala..."
 description: "The Visual Symphony of Polychroma; Embodying the Bold Spirit; The Mastery of Bvlgari’s Craftsmanship; A Night to Remember; More ..."
 url: "https://jewelry.allwomenstalk.com/bvlgari-polychroma-met-gala/"
 category: "jewelry"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # When Bvlgari's Polychroma Stole the Spotlight at the Met Gala...

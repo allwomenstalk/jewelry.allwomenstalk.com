@@ -3,7 +3,7 @@ title: "7 Video Tutorials for DIY Collar Necklaces ..."
 description: "Studded Collar Necklace; Pearl-Embellished Peter Pan Collar Necklace; Pearls, Studs, Sparkles; Chain Peter Pan Necklace; Chain Collar Necklace; More ..."
 url: "https://jewelry.allwomenstalk.com/video-tutorials-for-diy-collar-necklaces/"
 category: "jewelry"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Video Tutorials for DIY Collar Necklaces ...
@@ -42,16 +42,16 @@ Have you been wondering how to make a collar necklace? Well, hopefully these tut
 
 ## Related Posts
 
-- [glass vase wedding centerpieces](https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/)
 - [craft of elephant](https://diy.allwomenstalk.com/enchanting-diy-elephant-craft-projects/)
 - [valentines banners](https://diy.allwomenstalk.com/delightful-diy-valentines-day-banners/)
-- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
-- [old scrabble tiles](https://diy.allwomenstalk.com/creative-ways-to-upcycle-scrabble-tiles/)
-- [do it yourself drawer organizers](https://diy.allwomenstalk.com/awesome-diy-drawer-organizers/)
+- [glass vase wedding centerpieces](https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/)
 - [make a coat rack](https://diy.allwomenstalk.com/creative-diy-coat-racks/)
-- [diy valentines wreaths](https://diy.allwomenstalk.com/lovely-diy-valentines-day-wreaths/)
-- [ideas for old cribs](https://diy.allwomenstalk.com/up-cycle-ideas-for-outgrown-cribs/)
+- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
 - [hula hoop chandelier](https://diy.allwomenstalk.com/clever-ways-to-reuse-hula-hoops/)
+- [old scrabble tiles](https://diy.allwomenstalk.com/creative-ways-to-upcycle-scrabble-tiles/)
+- [ideas for old cribs](https://diy.allwomenstalk.com/up-cycle-ideas-for-outgrown-cribs/)
+- [diy valentines wreaths](https://diy.allwomenstalk.com/lovely-diy-valentines-day-wreaths/)
+- [do it yourself drawer organizers](https://diy.allwomenstalk.com/awesome-diy-drawer-organizers/)
 - [7 Tutorials on Making DIY Hair Accessories ...](https://hair.allwomenstalk.com/tutorials-on-making-diy-hair-accessories/)
 - [7 Super Trendy Hair Jewelry ...](https://allwomenstalk.com/7-super-trendy-hair-jewelry/)
 

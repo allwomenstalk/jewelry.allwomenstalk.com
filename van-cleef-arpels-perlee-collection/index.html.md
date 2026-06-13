@@ -3,7 +3,7 @@ title: "Discover the Secret Dance of Elegance in Perlée..."
 description: "The Prismatic Beauty of White Gold...; A Floral Fantasy for Your Fingers...; Charm and Coziness in Every Bead...; Your Part in the Journey...; More ..."
 url: "https://jewelry.allwomenstalk.com/van-cleef-arpels-perlee-collection/"
 category: "jewelry"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Discover the Secret Dance of Elegance in Perlée...
