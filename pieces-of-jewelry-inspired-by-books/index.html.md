@@ -3,7 +3,7 @@ title: "21 Pieces of Jewelry Inspired by Books ..."
 description: "Some Pig Necklace; The Little Prince Necklace; Book Eating Boy Necklace; Lord of the (Ear)rings; Hermione's Time Turner Necklace; More ..."
 url: "https://jewelry.allwomenstalk.com/pieces-of-jewelry-inspired-by-books/"
 category: "jewelry"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 21 Pieces of Jewelry Inspired by Books ...
@@ -147,16 +147,16 @@ Let President Snow know whose side you're on.
 
 ## Related Posts
 
+- [conch piercing starter jewelry](https://jewelry.allwomenstalk.com/unique-multiple-piercing-looks-youll-love/)
+- [statement necklaces for black dress](https://jewelry.allwomenstalk.com/statement-necklaces-thatll-add-sparkle-to-your-wardrobe/)
+- [irish memorial tattoos](https://beauty.allwomenstalk.com/memorial-tattoos-for-anyone-youve-loved-and-lost/)
 - [pirate tattoos](https://beauty.allwomenstalk.com/majestic-mermaid-tattoos-meant-to-make-you-smile/)
 - [cutest tree](https://jewelry.allwomenstalk.com/heres-the-cutest-holiday-tree-themed-jewelry-out-there/)
-- [unique mother daughter tattoos](https://beauty.allwomenstalk.com/mother-daughter-tattoos-thatll-create-a-lifelong-bond/)
-- [conch piercing starter jewelry](https://jewelry.allwomenstalk.com/unique-multiple-piercing-looks-youll-love/)
-- [irish memorial tattoos](https://beauty.allwomenstalk.com/memorial-tattoos-for-anyone-youve-loved-and-lost/)
-- [statement necklaces for black dress](https://jewelry.allwomenstalk.com/statement-necklaces-thatll-add-sparkle-to-your-wardrobe/)
 - [statement necklace meaning](https://jewelry.allwomenstalk.com/statement-necklaces-to-add-umph-to-any-outfit/)
-- [bed bath and beyond jewelry organizer](https://jewelry.allwomenstalk.com/unique-jewelry-stands-to-keep-your-accessories-organized/)
 - [paris riche stylo blinged and](https://jewelry.allwomenstalk.com/fab-bling-inspired-by-the-star-wars-franchise/)
 - [ear cuffs meaning](https://jewelry.allwomenstalk.com/sexy-ear-cuffs-for-women-without-any-piercings/)
+- [unique mother daughter tattoos](https://beauty.allwomenstalk.com/mother-daughter-tattoos-thatll-create-a-lifelong-bond/)
+- [bed bath and beyond jewelry organizer](https://jewelry.allwomenstalk.com/unique-jewelry-stands-to-keep-your-accessories-organized/)
 - [7 Beautiful Pieces of Jewelry by Wendy Mink ...](https://jewelry.allwomenstalk.com/7-beautiful-pieces-of-jewelry-by-wendy-mink/)
 - [8 Animal Inspired Pieces of Jewelry ...](https://jewelry.allwomenstalk.com/8-animal-inspired-pieces-of-jewelry/)
 
