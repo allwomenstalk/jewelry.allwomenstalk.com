@@ -3,7 +3,7 @@ title: "Inside the Cartier High Jewelry Look That Stole the Oscars Spotlight ...
 description: "The Magnificent Design of Cartier High Jewelry; Zoe Saldana’s Spellbinding Performance at the Oscars; The Story Behind Cartier’s High Jewelry; Your Thoughts on Cartier’s Magic; More ..."
 url: "https://jewelry.allwomenstalk.com/cartier-high-jewelry-zoe-saldana-academy-awards/"
 category: "jewelry"
-last_updated: "2026-06-16"
+last_updated: "2026-06-17"
 ---
 
 # Inside the Cartier High Jewelry Look That Stole the Oscars Spotlight ...

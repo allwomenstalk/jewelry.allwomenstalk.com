@@ -3,7 +3,7 @@ title: "Gigi Hadid's Accessories: How Did They Steal the Show?"
 description: "The Fringe Earrings That Sparkle Like Stars; A Closer Look at the Double Crown Ring; Gigi's Look: A Testament to the Art of Accessorizing; The Brand's Timeless Innovation; More ..."
 url: "https://jewelry.allwomenstalk.com/gigi-hadid-de-beers-light-rays-collection/"
 category: "jewelry"
-last_updated: "2026-06-16"
+last_updated: "2026-06-17"
 ---
 
 # Gigi Hadid's Accessories: How Did They Steal the Show?

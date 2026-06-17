@@ -3,7 +3,7 @@ title: "7 Interesting Facts about Tiffany & Co. You May Not Know ..."
 description: "They Opened in 1837; It Started off as Tiffany, Young and Ellis; They Make the Vince Lombardi Trophy; They Made a Cell Phone; They Had a Sister Company; More ..."
 url: "https://jewelry.allwomenstalk.com/7-interesting-facts-about-tiffany-co-you-may-not-know/"
 category: "jewelry"
-last_updated: "2026-06-16"
+last_updated: "2026-06-17"
 ---
 
 # 7 Interesting Facts about Tiffany & Co. You May Not Know ...
@@ -44,16 +44,16 @@ Top image source: [bookofjoe.typepad.com](https://bookofjoe.typepad.com/photos/u
 
 ## Related Posts
 
-- [pawn shop 9 mile](https://lifestyle.allwomenstalk.com/9-things-you-might-not-know-about-pawn-shops/)
-- [winter solstice fun facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-the-yule-holiday/)
 - [Five Things You Didn't Know about Us](https://allwomenstalk.com/five-things-you-didnt-know-about-us/)
-- [physical geography facts](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
-- [facts about 9/11 you didn't know](https://lifestyle.allwomenstalk.com/interesting-facts-about-911/)
+- [winter solstice fun facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-the-yule-holiday/)
 - [cool and interesting facts about diamonds](https://jewelry.allwomenstalk.com/unique-facts-about-diamonds-you-did-not-know/)
+- [pawn shop 9 mile](https://lifestyle.allwomenstalk.com/9-things-you-might-not-know-about-pawn-shops/)
 - [harry potter book facts you didn't know](https://lifestyle.allwomenstalk.com/fun-harry-potter-facts-you-didnt-know/)
 - [facts about myth](https://lifestyle.allwomenstalk.com/interesting-facts-about-mythology/)
 - [7 Facts about Coffee ...](https://lifestyle.allwomenstalk.com/7-facts-about-coffee/)
+- [physical geography facts](https://lifestyle.allwomenstalk.com/interesting-geography-facts/)
 - [7 Things You Didn't Know about Parasites ...](https://health.allwomenstalk.com/7-things-you-didnt-know-about-parasites/)
+- [facts about 9/11 you didn't know](https://lifestyle.allwomenstalk.com/interesting-facts-about-911/)
 - [7 Fabulously Stunning and Unique Engagement Rings ...](https://wedding.allwomenstalk.com/fabulously-stunning-and-unique-engagement-rings/)
 - [7 Beautiful Tiffany Key Pendants ...](https://jewelry.allwomenstalk.com/7-beautiful-tiffany-key-pendants/)
 
