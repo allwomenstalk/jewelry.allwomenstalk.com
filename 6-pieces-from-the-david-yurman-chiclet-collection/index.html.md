@@ -3,7 +3,7 @@ title: "6 Pieces from the David Yurman Chiclet Collection ..."
 description: "David Yurman Sterling Silver and 18K Gold Small Chiclet Collection Necklace; David Yurman Sterling Silver & 18K Yellow Gold Mosaic Ring; David Yurman Moon Quartz, Pavé Diamond & Sterling Silver Drop Earrings; David Yurman Sterling Silver & 18K Gold Short Necklace; David Yurman Diamond, Moon Quartz & Sterling Silver Chiclet Collection 3-Row Bracelet; More ..."
 url: "https://jewelry.allwomenstalk.com/6-pieces-from-the-david-yurman-chiclet-collection/"
 category: "jewelry"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 6 Pieces from the David Yurman Chiclet Collection ...
@@ -56,16 +56,16 @@ Aren’t all of these pieces beautiful? They’re so pretty, ideal for wearing a
 
 ## Related Posts
 
-- [filegrei jeweleru](https://jewelry.allwomenstalk.com/gorgeous-filigree-jewelry/)
-- [stylised skull](https://jewelry.allwomenstalk.com/skull-detailed-jewellery/)
 - [7 Must-Have Leather Jewelry ...](https://jewelry.allwomenstalk.com/must-have-leather-jewelry/)
-- [kate spade engagement rings](https://jewelry.allwomenstalk.com/gorgeous-glittery-kate-spade-rings/)
 - [rings with crystals](https://jewelry.allwomenstalk.com/raw-crystal-rings/)
-- [clip fastening earrings](https://jewelry.allwomenstalk.com/striking-clip-on-earrings/)
-- [tiffany nurse necklace](https://jewelry.allwomenstalk.com/gifts-for-grads-from-tiffany/)
-- [juicy rings](https://jewelry.allwomenstalk.com/cute-juicy-couture-blings/)
 - [8 Gorgeous Layering Necklaces ...](https://jewelry.allwomenstalk.com/gorgeous-layering-necklaces/)
+- [clip fastening earrings](https://jewelry.allwomenstalk.com/striking-clip-on-earrings/)
+- [stylised skull](https://jewelry.allwomenstalk.com/skull-detailed-jewellery/)
 - [7 Choker Necklaces ...](https://jewelry.allwomenstalk.com/choker-necklaces/)
+- [juicy rings](https://jewelry.allwomenstalk.com/cute-juicy-couture-blings/)
+- [tiffany nurse necklace](https://jewelry.allwomenstalk.com/gifts-for-grads-from-tiffany/)
+- [kate spade engagement rings](https://jewelry.allwomenstalk.com/gorgeous-glittery-kate-spade-rings/)
+- [filegrei jeweleru](https://jewelry.allwomenstalk.com/gorgeous-filigree-jewelry/)
 - [6 Stylish Metallic DKNY Sandals ...](https://shoes.allwomenstalk.com/stylish-metallic-dkny-sandals/)
 - [7 Gorgeous Chandelier Earrings ...](https://jewelry.allwomenstalk.com/7-gorgeous-chandelier-earrings/)
 

@@ -3,7 +3,7 @@ title: "The Timeless Elegance of Elsa Peretti's Bone Cuffs"
 description: "A Distinctive Design; Captivating Performances; The Legacy of Elsa Peretti; More ..."
 url: "https://jewelry.allwomenstalk.com/elsa-peretti-bone-cuffs-timeless-elegance/"
 category: "jewelry"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # The Timeless Elegance of Elsa Peretti's Bone Cuffs
