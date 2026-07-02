@@ -3,7 +3,7 @@ title: "The Story Behind Tiffany & Co.'s Paradise Bird..."
 description: "The Enchanting Australian Boulder Opal; The Symphony of Gemstones; Craftsmanship Beyond Compare; A Nod to Jean Schlumberger; Reflecting on Sources of Inspiration; More ..."
 url: "https://jewelry.allwomenstalk.com/a-mesmerizing-flight-with-tiffany-paradise-bird/"
 category: "jewelry"
-last_updated: "2026-06-26"
+last_updated: "2026-07-02"
 ---
 
 # The Story Behind Tiffany & Co.'s Paradise Bird...
