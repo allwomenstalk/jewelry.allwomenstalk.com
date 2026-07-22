@@ -3,7 +3,7 @@ title: "Cannes and De Beers... How Did They Steal the Spotlight Together?"
 description: "The Jewel in the Crown: De Beers’ High Jewellery; The Allure of Diamonds: Capturing Light and Attention; A Touch of Nature’s Colors: The Fancy Yellow Green Diamond; The Cannes Effect: Celebrity Influence on Fashion Choices; The Heritage of De Beers: A Legacy of Elegance and Ethics; More ..."
 url: "https://jewelry.allwomenstalk.com/de-beers-scarlett-johansson-cannes/"
 category: "jewelry"
-last_updated: "2026-07-02"
+last_updated: "2026-07-22"
 ---
 
 # Cannes and De Beers... How Did They Steal the Spotlight Together?
