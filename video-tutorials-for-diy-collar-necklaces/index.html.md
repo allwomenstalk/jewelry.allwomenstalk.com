@@ -3,7 +3,7 @@ title: "7 Video Tutorials for DIY Collar Necklaces ..."
 description: "Studded Collar Necklace; Pearl-Embellished Peter Pan Collar Necklace; Pearls, Studs, Sparkles; Chain Peter Pan Necklace; Chain Collar Necklace; More ..."
 url: "https://jewelry.allwomenstalk.com/video-tutorials-for-diy-collar-necklaces/"
 category: "jewelry"
-last_updated: "2026-07-25"
+last_updated: "2026-08-01"
 ---
 
 # 7 Video Tutorials for DIY Collar Necklaces ...
@@ -42,16 +42,16 @@ Have you been wondering how to make a collar necklace? Well, hopefully these tut
 
 ## Related Posts
 
-- [glass vase wedding centerpieces](https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/)
 - [diy valentines wreaths](https://diy.allwomenstalk.com/lovely-diy-valentines-day-wreaths/)
-- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
 - [valentines banners](https://diy.allwomenstalk.com/delightful-diy-valentines-day-banners/)
+- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
+- [ideas for old cribs](https://diy.allwomenstalk.com/up-cycle-ideas-for-outgrown-cribs/)
+- [craft of elephant](https://diy.allwomenstalk.com/enchanting-diy-elephant-craft-projects/)
 - [old scrabble tiles](https://diy.allwomenstalk.com/creative-ways-to-upcycle-scrabble-tiles/)
 - [do it yourself drawer organizers](https://diy.allwomenstalk.com/awesome-diy-drawer-organizers/)
 - [make a coat rack](https://diy.allwomenstalk.com/creative-diy-coat-racks/)
-- [ideas for old cribs](https://diy.allwomenstalk.com/up-cycle-ideas-for-outgrown-cribs/)
 - [hula hoop chandelier](https://diy.allwomenstalk.com/clever-ways-to-reuse-hula-hoops/)
-- [craft of elephant](https://diy.allwomenstalk.com/enchanting-diy-elephant-craft-projects/)
+- [glass vase wedding centerpieces](https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/)
 - [7 Tutorials on Making DIY Hair Accessories ...](https://hair.allwomenstalk.com/tutorials-on-making-diy-hair-accessories/)
 - [7 Super Trendy Hair Jewelry ...](https://allwomenstalk.com/7-super-trendy-hair-jewelry/)
 
